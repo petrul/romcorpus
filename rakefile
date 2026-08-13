@@ -1,0 +1,67 @@
+require 'fileutils'
+
+# Silence command echoing across all Rake sh tasks
+verbose(false)
+
+# MD_FILES   = FileList['*.md']
+# HTML_FILES = MD_FILES.ext('.html')
+# ODT_FILES  = MD_FILES.ext('.odt')
+
+# # TEI files generated from Markdown
+# TEI_FROM_MD = MD_FILES.ext('.tei.xml')
+
+# # TEI files generated from standard zipped ODT (.odt)
+# ALL_ODT_INPUTS = FileList['*.odt']
+# TEI_FROM_ODT   = ALL_ODT_INPUTS.pathmap('%n_from_odt.tei.xml')
+
+# FODT setup: map all fodt/*.fodt files to build/*.xml
+FODT_INPUTS     = FileList['fodt/*.fodt']
+# MD_INPUTS       = FileList['md/*.md']
+
+TEI_FROM_FODT   = FODT_INPUTS.pathmap('build/%n.tei.xml')
+ODT_FROM_FODT   = FODT_INPUTS.pathmap('build/%n.odt')
+# TEI_FROM_MD     = MD_INPUTS.pathmap('build/%n.xml')
+
+# Define target directories
+directory 'build'
+
+task default: [:build]
+
+task build: [:tei]
+
+desc "Convert all source formats (MD, ODT, FODT) to TEI XML"
+task tei: [:tei_from_odt]
+
+# desc "Convert Markdown to TEI XML"
+# task tei_from_md: TEI_FROM_MD
+
+desc "Convert FODT files in fodt/ to TEI XML in build/"
+task tei_from_odt: [*TEI_FROM_FODT]
+task odt_from_fodt: [*ODT_FROM_FODT]
+
+# # Rule: .md -> .tei.xml
+# rule '.tei.xml' => '.md' do |t|
+#   sh "pandoc #{t.source} -f markdown -t tei -s -o #{t.name}"
+# end
+
+# Rule: _from_odt.tei.xml -> .odt
+rule '.tei.xml' => '.odt' do |t|
+  sh "pandoc #{t.source} -f odt -t tei -s -o #{t.name}"
+end
+
+# # Rule: build/*.xml -> fodt/*.fodt
+# rule %r{\Abuild/.*\.xml\z} => [  ->(task_name) { task_name.pathmap('fodt/%n.fodt') } ] do |t|
+#   sh "pandoc #{t.source} -f odt -t tei -s -o #{t.name}"
+# end
+
+rule %r{\Abuild/.*\.odt\z} => [
+  ->(task_name) { task_name.pathmap('fodt/%n.fodt') }
+] do |t|
+  sh "libreoffice --headless --convert-to odt #{t.source} --outdir build/"
+end
+
+desc "Clean generated output files"
+task :clean do
+#   rm_f TEI_FROM_MD + TEI_FROM_ODT + TEI_FROM_FODT + HTML_FILES + ODT_FILES
+  rm_rf 'build/' #if Dir.empty?('build') rescue nil
+end
