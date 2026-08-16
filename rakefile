@@ -1,41 +1,124 @@
 require 'fileutils'
+require 'base64'
 
 # Silence command echoing across all Rake sh tasks
 verbose(false)
 
-FODT_INPUTS     = FileList['fodt/*.fodt']
+# fodttotei (and the tei-stylesheets ant pipeline generally) embeds every
+# image as base64 inside a <binaryObject>, always mislabeled
+# mimeType="image/jpg" regardless of actual format -- for a scanned book
+# this bloats the tei.xml by two orders of magnitude and makes it unreadable
+# as a diff. Pull each one out into tei/<name>.tei.xml.d/ and replace it with
+# a plain TEI <graphic url=.../>.
+#
+# The binaryObjects appear in the same order the images were referenced in
+# the md source, so while md/X.md still exists we copy the original files
+# straight from md/*_ocr_figures/ (lossless, and named meaningfully) instead
+# of decoding the copy that went through pandoc/LibreOffice. Only once the
+# md is gone -- and there's nothing left to copy from -- do we fall back to
+# decoding the embedded base64, sniffing the real format from its magic
+# bytes since the declared mimeType can't be trusted.
+IMAGE_MAGIC = {
+  "\x89PNG\r\n\x1A\n".b => 'png',
+  "\xFF\xD8\xFF".b      => 'jpg',
+  'GIF87a'.b             => 'gif',
+  'GIF89a'.b             => 'gif',
+  'BM'.b                 => 'bmp',
+}.freeze
 
-TEI_FROM_FODT   = FODT_INPUTS.pathmap('build/%n.tei.xml')
-ODT_FROM_FODT   = FODT_INPUTS.pathmap('build/%n.odt')
+def sniff_image_extension(bytes)
+  IMAGE_MAGIC.each { |magic, ext| return ext if bytes.start_with?(magic) }
+  'bin'
+end
 
-# Define target directories
-directory 'build'
+# Ordered list of image paths a markdown file references, e.g.
+# ![Illustration on page 001](3 Foo_ocr_figures/page-001.png) -> md/3 Foo_ocr_figures/page-001.png
+def md_image_sources(md_path)
+  return [] unless md_path && File.exist?(md_path)
+  File.read(md_path).scan(/!\[[^\]]*\]\(([^)]*)\)/).map { |(rel)| File.join(File.dirname(md_path), rel) }
+end
+
+def externalize_tei_images(tei_path, md_path)
+  dir_name = File.basename(tei_path, '.tei.xml') + '.d'
+  dir_path = File.join(File.dirname(tei_path), dir_name)
+  sources  = md_image_sources(md_path)
+  index    = 0
+  content  = File.read(tei_path)
+  content.gsub!(%r{<binaryObject\s+xml:id="[^"]*"\s+encoding="base64"\s+mimeType="[^"]*">(.*?)</binaryObject>}m) do
+    b64 = $1
+    src = sources[index]
+    index += 1
+    mkdir_p dir_path
+    if src && File.exist?(src)
+      img_name = File.basename(src)
+      cp src, File.join(dir_path, img_name)
+    else
+      bytes    = Base64.decode64(b64)
+      img_name = format('img%03d.%s', index, sniff_image_extension(bytes))
+      File.binwrite(File.join(dir_path, img_name), bytes)
+    end
+    %(<graphic url="#{dir_name}/#{img_name}"/>)
+  end
+  File.write(tei_path, content)
+  index
+end
+
+TEI_STYLESHEETS = ENV['TEI_STYLESHEETS'] || File.expand_path('~/sources/tei-stylesheets')
+FODTTOTEI       = File.join(TEI_STYLESHEETS, 'bin', 'fodttotei')
+
+# Every stem we know how to build fodt for: either it still has an md source,
+# or the md was already deleted and the fodt itself is now the source of truth.
+FODT_TARGETS = (FileList['md/*.md'].pathmap('fodt/%n.fodt') + FileList['fodt/*.fodt']).uniq.sort
+TEI_TARGETS  = FODT_TARGETS.pathmap('tei/%n.tei.xml')
+
+directory 'odt'
+directory 'fodt'
+directory 'tei'
 
 task default: [:build]
 
-task build: [:tei]
+desc 'Build fodt and tei.xml for everything under md/ and any fodt/ already present'
+task build: [:build_fodt, :build_tei]
 
-desc "Convert all source formats (MD, ODT, FODT) to TEI XML"
-task tei: [:tei_from_odt]
+desc 'Build fodt/*.fodt (from md/*.md, or leave standalone fodt as-is)'
+task build_fodt: ['fodt'] + FODT_TARGETS
 
-# desc "Convert Markdown to TEI XML"
-# task tei_from_md: TEI_FROM_MD
+desc 'Build tei/*.tei.xml from fodt/*.fodt'
+task build_tei:  ['tei'] + TEI_TARGETS
 
-desc "Convert FODT files in fodt/ to TEI XML in build/"
-task tei_from_odt: [*TEI_FROM_FODT]
-task odt_from_fodt: [*ODT_FROM_FODT]
-
-rule '.tei.xml' => '.odt' do |t|
-  sh "pandoc #{t.source} -f odt -t tei -s -o #{t.name}"
+# md/X.md -> fodt/X.fodt, via a throwaway odt/X.odt (pandoc can't write fodt
+# directly, so LibreOffice does the odt -> fodt step).
+#
+# This rule only fires when md/X.md exists. If it doesn't (source deleted on
+# purpose once the fodt is considered final), Rake can't resolve the
+# prerequisite and silently leaves the existing fodt/X.fodt alone -- it
+# becomes the source.
+rule '.fodt' => ->(fodt_name) { fodt_name.sub(%r{\Afodt/}, 'md/').sub(/\.fodt\z/, '.md') } do |t|
+  mkdir_p 'odt'
+  mkdir_p 'fodt'
+  odt_path = t.name.sub(%r{\Afodt/}, 'odt/').sub(/\.fodt\z/, '.odt')
+  sh 'pandoc', t.source, '-f', 'markdown', '-t', 'odt', '-s',
+     '--resource-path', File.dirname(t.source), '-o', odt_path
+  sh 'soffice', '--headless', '--convert-to', 'fodt', odt_path, '--outdir', 'fodt/'
 end
 
-rule %r{\Abuild/.*\.odt\z} => [
-  ->(task_name) { task_name.pathmap('fodt/%n.fodt') }
-] do |t|
-  sh "libreoffice --headless --convert-to odt #{t.source} --outdir build/"
+# fodt/X.fodt -> tei/X.tei.xml, via the TEI Consortium stylesheets
+# (~/sources/tei-stylesheets), no odt step involved.
+rule '.tei.xml' => ->(tei_name) { tei_name.sub(%r{\Atei/}, 'fodt/').sub(/\.tei\.xml\z/, '.fodt') } do |t|
+  unless File.executable?(FODTTOTEI)
+    fail "fodttotei not found/executable at #{FODTTOTEI} (set TEI_STYLESHEETS to override)"
+  end
+  mkdir_p 'tei'
+  sh FODTTOTEI, t.source, t.name
+  md_path = t.name.sub(%r{\Atei/}, 'md/').sub(/\.tei\.xml\z/, '.md')
+  n = externalize_tei_images(t.name, md_path)
+  puts "#{t.name}: extracted #{n} image(s) into #{File.basename(t.name, '.tei.xml')}.d/" if n > 0
 end
 
-desc "Clean build/"
+# md and fodt are only ever removed by hand, once you've decided the next
+# stage down the pipeline (fodt, then tei) is the source of truth. odt/ is
+# the one genuinely disposable artifact.
+desc 'Remove the intermediate odt/ directory'
 task :clean do
-  rm_rf 'build/' #if Dir.empty?('build') rescue nil
+  rm_rf 'odt'
 end
