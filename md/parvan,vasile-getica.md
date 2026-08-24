@@ -73,19 +73,9 @@ MEMBRU AL ACADEMIEI ROMÂNE
 
 *Sedinta dela 27 Iunie 1924*
 
-In a. 1871 Alexandru Odobescu instituià, prin Academia Română (pe atunci «Societatea Academică»), un premiu pentru cea mai bună lucrare «asupra popoarelor cari au locuit țările române de-a stânga Dunării mai înainte de cucerirea acestor țări de către împăratul Traian». Grigore Tocilescu, pe atunci student, fu ispitit de subiect, și în 1876 il prezentă ca teză de doctorat la Praga. In anul următor el înainte Academiei teza sa «după o prefacere radicală» și obține premiul. Cartea sa, cu titlul Dacia înainte de Romani apărea în 1880 în vol. X al Anál. Soc. Acad. Rom. In aceeași vreme cu Tocilescu învățătul săs Carl Gooss, după o constiincioasă anchetă archeologică în Ardeal (Chronik d. arch. Funde Siebenbürgens) scrise lucrarea sa de sinteză, Skizzen zur vorrömischen Culturgeschichte der mittleren Donaugegenden (ambele publ. in Archiv d. Ver. f. siebenb. Landesk. pe 1876 și 1877). In pregătirea pentru tipar a lucrării sale, Tocilesco folosi din plin lucrarea lui Gooss, apărută înainte de a sa. Interpretările și concluziile greșite ale lui Gooss se regăsesc deci și la Tocilescu. Douăzeci de ani după aceste lucrări F. v. Pulszky publică în 1897 la Budapesta cartea sa în două volume, Magyarország Archeologidja. Din nenorocire această lucrare nu aprofundă suficient chestiunile privitoare la epoca și ținuturile de care ne ocupăm. Contemporan Nicolae Densusianu scria romanul său fantastic Dacia preistorică, plin de mitologie și de filologie absurdă, care la apariția sa (postumă: 1913) deșteptă o admiratie și un entusiasm nemărginit printre diletanți români
+In a. 1871 Alexandru Odobescu instituià, prin Academia Română (pe atunci «Societatea Academică»), un premiu pentru cea mai bună lucrare «asupra popoarelor cari au locuit țările române de-a stânga Dunării mai înainte de cucerirea acestor țări de către împăratul Traian». Grigore Tocilescu, pe atunci student, fu ispitit de subiect, și în 1876 il prezentă ca teză de doctorat la Praga. In anul următor el înainte Academiei teza sa «după o prefacere radicală» și obține premiul. Cartea sa, cu titlul Dacia înainte de Romani apărea în 1880 în vol. X al Anál. Soc. Acad. Rom. In aceeași vreme cu Tocilescu învățătul săs Carl Gooss, după o constiincioasă anchetă archeologică în Ardeal (Chronik d. arch. Funde Siebenbürgens) scrise lucrarea sa de sinteză, Skizzen zur vorrömischen Culturgeschichte der mittleren Donaugegenden (ambele publ. in Archiv d. Ver. f. siebenb. Landesk. pe 1876 și 1877). In pregătirea pentru tipar a lucrării sale, Tocilesco folosi din plin lucrarea lui Gooss, apărută înainte de a sa. Interpretările și concluziile greșite ale lui Gooss se regăsesc deci și la Tocilescu. Douăzeci de ani după aceste lucrări F. v. Pulszky publică în 1897 la Budapesta cartea sa în două volume, Magyarország Archeologidja. Din nenorocire această lucrare nu aprofundă suficient chestiunile privitoare la epoca și ținuturile de care ne ocupăm. Contemporan Nicolae Densusianu scria romanul său fantastic Dacia preistorică, plin de mitologie și de filologie absurdă, care la apariția sa (postumă: 1913) deșteptă o admiratie și un entusiasm nemărginit printre diletanți români în archeologie. In sfârșit în 1912 d. I. Andrieșescu își luă doctoratul la Iași cu o Contribuțiune la Dacia înainte de Romani, tratând amănuntit și conștiincios chestiunea neoliticului din Dacia.
 
 * I A. R. Memoriile Secțiunii Istorie. Seria III, Tom. III, Mem. 2.
-
-
-
-
----
-
-<!-- PAGE 005 -->
-2 VASILE PĂRVAN, GETICA 114
-
-în archeologie. In sfârșit în 1912 d. I. Andrieșescu își luă doctoratul la Iași cu o Contribuțiune la Dacia înainte de Romani, tratând amănuntit și conștiincios chestiunea neoliticului din Dacia.
 
 Acum trei ani, când am pornit cercetările pe teren privitoare la protoistoria daco-getică, nu există deci, în nici-o limbă, nici-o carte utilizabilă, de informație și orientare generală științifică asupra subiectului.
 
@@ -95,69 +85,52 @@ Pentru lipsurile și greșelile ce se vor găsi mai jos sunt eu singur răspunz�
 
 **I**
 
-Prin anii 1000 a. Chr.) înfloreă în ținutul dintre ultimele prelungiri ale Alpilor, deoparte, Carpați Nordici cu Galitia și Bucovina²), de alta, în sfârșit regiunea către Nistru³) și Dunărea de jos⁴) ca limită de Est și Sud, ultima și cea mai desvoltată formă a civilizației bronzului. Creatorii ei erau un popor unitar, a cărui naționalitate se va defini ușor în cele ce urmează. În continuuitate cu acest popor, locuiau, dela Nistru (Herodot IV 11) și până la Don și în ținutul Cubanului (Herodot IV 12), ocupând tot țărmul nordic al Mării Negre, Cimmerienii. Aceștia — după toate semnele — par a fi fost Thraci⁵). Civilizația bronzului
+Prin anii 1000 a. Chr.) înfloreă în ținutul dintre ultimele prelungiri ale Alpilor, deoparte, Carpați Nordici cu Galitia și Bucovina[^2], de alta, în sfârșit regiunea către Nistru[^3] și Dunărea de jos[^4] ca limită de Est și Sud, ultima și cea mai desvoltată formă a civilizației bronzului. Creatorii ei erau un popor unitar, a cărui naționalitate se va defini ușor în cele ce urmează. În continuuitate cu acest popor, locuiau, dela Nistru (Herodot IV 11) și până la Don și în ținutul Cubanului (Herodot IV 12), ocupând tot țărmul nordic al Mării Negre, Cimmerienii. Aceștia — după toate semnele — par a fi fost Thraci[^5]). Civilizația bronzului prezentată de ei era foarte asemănătoare celeia din massivul carpatic [^1]. Pare că ei locuiau aici încă de prin al 16-lea veac a. Chr.[^2]. Deasemenea, resturile arheologice arată că, cel puțin de la începutul mileniului II-lea, locuise și în Carpați cu civilizația originală a bronzului aceluia al cărui nume încă nu l-am spus [^3].  
 
-¹) Vezi p. cronologia cpoelor de bronz «ungurești» Reinecke, în Ethnologische Mitteilungen aus Ungarn, VI 1898—1901, 2—3, Budapest 1901, p. 4.
+[^1] Vezi p. cronologia cpoelor de bronz «ungurești» Reinecke, în Ethnologische Mitteilungen aus Ungarn, VI 1898—1901, 2—3, Budapest 1901, p. 4.
 
-²) Reinecke, Neue skythische Altertümer aus Ungarn, în aceeaș revistă, VI 1898, I, p. 11.
+[^2] Reinecke, Neue skythische Altertümer aus Ungarn, în aceeaș revistă, VI 1898, I, p. 11.
 
-³) Rostovtzeff, Iranians and Greeks in South Russia, Oxford, 1922, p. 40.
+[^3] Rostovtzeff, Iranians and Greeks in South Russia, Oxford, 1922, p. 40.
 
-⁴) Precum dovedesc descoperirile din Muntenia, în special tezaurlul de bronz dela Drajna-de-Jos (inedit; la Muzeul Național de Antichități).
+[^4] Precum dovedesc descoperirile din Muntenia, în special tezaurlul de bronz dela Drajna-de-Jos (inedit; la Muzeul Național de Antichități).
 
-⁵) Hubert Schmidt, Zeitschrift für Ethnologie XXXVI 1904, p. 630. Max Ebert, Südrussland im Altertum, Bonn u. Leipzig 1921, p. 75 sqq., p. 350, 386 sq.;
-
-
+[^5] Hubert Schmidt, Zeitschrift für Ethnologie XXXVI 1904, p. 630. Max Ebert, Südrussland im Altertum, Bonn u. Leipzig 1921, p. 75 sqq., p. 350, 386 sq.;
 
 
----
+de prin anii 1600 a. Chr. încep însă și marile mișcări de migrație ale Arienilor-Iranieni din Asia Centrală spre Vest; întâi spre Mesopotamia, Siria și Asia Mică, unde încep a fi constatați preciz în sec. XV în textele cuneiforme [^4], — apoi, pe la Nordul Caspicei, spre stepele Rusiei Sudice. Rostovtzeff a arătat că Scythii din Sudul Rusiei sunt prezoroastrici [^5]. Dar Eduard Meyer a dovedit cu documente assyriene că Zoroastriu a trăit, nu în sec. VII ori VI, ci cel mai târziu pe la 1000 a. Chr., dacă nu chiar mai înainte [^6]. De altă parte în toate invaziile cimmeriene spre Miazăzi, vedem la acest popor regi cu nume iranien: Šandakšatru, Teušpa, ori poate chiar Dygdamis [^7]. Prin urmare părerea general admisă că abia în sec. VIII [^8] au ajuns Scythii în contact cu Cimmerienii nu mi se pare în perfectă concordanță cu fap-  
 
-<!-- PAGE 006 -->
-5  
-**MIGRAȚII CIMMERO-SCYTHER. SEC. X–VI A. CHR.**  
-
-Prezentată de ei era foarte asemănătoare celeia din massivul carpatic <sup>1</sup>). Pare că ei locuiau aici încă de prin al 16-lea veac a. Chr.<sup>2</sup>). Deasemenea, resturile arheologice arată că, cel puțin de la începutul mileniului II-lea, locuise și în Carpați cu civilizația originală a bronzului aceluia al cărui nume încă nu l-am spus <sup>6</sup>.  
-
-<sup>1</sup>, de prin anii 1600 a. Chr. încep însă și marile mișcări de migrație ale Arienilor-Iranieni din Asia Centrală spre Vest; întâi spre Mesopotamia, Siria și Asia Mică, unde încep a fi constatați preciz în sec. XV în textele cuneiforme <sup>4</sup>, — apoi, pe la Nordul Caspicci, spre stepele Rusiei Sudice. Rostovtzeff a arătat că Scythii din Sudul Rusiei sunt prezenți "ostrici" <sup>5</sup>. Dar Eduard Meyer a dovedit cu documente asirice că Zoroastriu a trăit, nu în sec. VII ori VI, ci cel mai târziu pe la 1000 a. Chr., dacă nu chiar mai înaunte<sup>6</sup>. De altă parte în toate invaziile cimmeriene spre Miazăzi, vedem la acest popor regi cu nume iranien: Šandakšatru, Teušpa, ori poate chiar Dygdamis<sup>7</sup>. Prin urmare părerea general admisă că abia în sec. VIII<sup>8</sup>) au ajuns Scythii în contact cu Cimmerienii nu mi se pare în perfectă concordanță cu fap-  
-
-Ceea ce e însă mai curios, e că avem chiar o dată cronologică antică pentru începutul năvălirilor cimmeriene (care nu puteau fi decât o urmărire a presiunii exercitate de Iraniani, dinspre Caspica): anul 1076 al cronologiei Eusebiene<sup>6</sup), foarte potrivit cu indicațiile de alt ordin ce le-am în-...  
+Ceea ce e însă mai curios, e că avem chiar o dată cronologică antică pentru începutul năvălirilor cimmeriene (care nu puteau fi decât o urmărire a presiunii exercitate de Iraniani, dinspre Caspica): anul 1076 al cronologiei Eusebiene [^8], foarte potrivit cu indicațiile de alt ordin ce le-am în-...  
 
 Studiu căt și în Nordul Mării Negre cu mult înainte de anul 800.  
 
-1) Ebert, o. c., p. 77.  
-2) Ibid.  
-3) C.f. Hubert Schmidt, l. c.  
-4) Eduard Meyer, in Kuhn's Zeitschrift für vergl. Sprachf., XLII, Göttingen, p. 22, etc. Cf. însă și Ioh. Friedrich la Ebert, Reallexikon, I p. 137.  
-5) O. c., p. 11.  
-6) L. c., p. 15 și urm.  
-7) Cf. Minns, o. c., p. 42 și Vasmer, o. c., p. 5 sq. Deci exact același fenomen ca sec. XV a. Chr. în Siria și Mesopotamia: Meyer, l. c., p. 20.  
-8) Meyer, l. c., p. 26; Ebert, p. 75; Rostovtzeff, p. 35; Vasmer, p. 4.  
+[^1] Ebert, o. c., p. 77.  
+[^2] Ibid.  
+[^3] C.f. Hubert Schmidt, l. c.  
+[^4] Eduard Meyer, in Kuhn's Zeitschrift für vergl. Sprachf., XLII, Göttingen, p. 22, etc. Cf. însă și Ioh. Friedrich la Ebert, Reallexikon, I p. 137.  
+[^5] O. c., p. 11.  
+[^6] L. c., p. 15 și urm.  
+[^7] Cf. Minns, o. c., p. 42 și Vasmer, o. c., p. 5 sq. Deci exact același fenomen ca sec. XV a. Chr. în Siria și Mesopotamia: Meyer, l. c., p. 20.  
+[^8] Meyer, l. c., p. 26; Ebert, p. 75; Rostovtzeff, p. 35; Vasmer, p. 4.   
+    Cf. Lehmann-Haupt, Zur Chronologie der Kimmeriereinfälle, în Klio XVII 1920 și urm.; Ridgeway, *The early age of Greece*, p. 352—442 și J. B. Bury, *The heroic and the historic Cimmerians*, in Klio VI 1906, p. 79 sqq.
 
-Cf. Lehmann-Haupt, Zur Chronologie der Kimmeriereinfälle, în Klio XVII 1920 și urm.; Ridgeway, *The early age of Greece*, p. 352—442 și J. B. Bury, *The heroic and the historic Cimmerians*, in Klio VI 1906, p. 79 sqq.
 
+Totuș resturile arheologice scythice — databile — nu încep în Rusia decât în sec. VII. Iar întinderea Scythilor în Europa este centrală și completă, până la Oder, la Adriatica ori în Thracia, a în sec. VI a. Chr. [^1]. Prezența Sciților în Ardeal se verifică tot în sec. VII [^2]. Este clar deci, că mult înainte de sec. VI trebuia să înceteze această evoluție culturală, pe care în sec. VII noi o găsim pretutindeni gata. 
 
----
+Aceasta e cu atât mai natural, cu cât nu e un fenomen izolat. În adevăr Sarmații iranieni sunt la Don mult înainte de sec. IV a. Chr. Dar ei nu sunt la Dunăre decât în sec. II-I a. Chr. [^3]. *Cel puțin* tot trei secole le vor fi trebuit și Sciților ca să ajungă dela Volga și Caspica până la Nistru și Carpați.  
 
-<!-- PAGE 007 -->
-4  
-VASILE PÂRVAN, GETICA  
-
-Totuș resturile arheologice scythice — databile — nu încep în Rusia decât în sec. VII. Iar întinderea Scythilor în Europa este centrală și completă, până la Oder, la Adriatica ori în Thracia, a în sec. VI a. Chr. $^{1)}$. Prezența Sciților în Ardeal se verifică tot în sec. VII$^{2)}$. Este clar deci, că mult înainte de sec. VI trebuia să înceteze această evoluție culturală, pe care în sec. VII noi o găsim prătutulată.  
-
-Aceasta e cu atât mai natural, cu cât nu e un fenomen izolat. În adevăr Sarmataii iranieni sunt la Don mult înainte de sec. IV a. Chr. Dar ei nu sunt la Dunăre decât în sec. II-I a. Chr.$^{3)}$. Cel puțin tot trei secole le vor fi trebuit și Sciților ca să ajungă dela Volga și Caspica până la Nistru și Carpați.  
-
-Dar mai e și un foarte interesant argument archeologic, care arată că între a. 1000 și 900 au trebuit să înceapă turburările din Estul Europei, firește, întâi cu deplasările violente cimmeriene spre Vest, iar apoi cu însă năvălirile scitice. Anume Reinecke a făcut, împreună cu Ilampel, observația foarte întemeiată$^{4)}$, că «gleichzeitig mit [dem gewaltiger Vorstoss skythischer Stämme nach Westen] dürften auch die zahllosen Schatzfunde der jüngeren ungarischen Bronzezeit geborgen worden sein (tezaurlul dela Drajna ar fi un document pentru invazia pe valea Teleajenului — străvechil drum spre Ardeal), deren Erhaltung nur die Folge eines grossen kriegerischen Ereignisses sein konnte». Deci, cel mai târziu, «în sec. IX înainte de Hr., dacă nu chiar pe la a. 900$^{5)}$, sc întâmplau în Dacia aceste spaimoase îngropări de tezaure de bronz, la veste că năvălesc Cimmerienii$^{6)}$.  
+Dar mai e și un foarte interesant argument archeologic, care arată că între a. 1000 și 900 au trebuit să înceapă turburările din Estul Europei, firește, întâi cu deplasările violente cimmeriene spre Vest, iar apoi cu însă năvălirile scitice. Anume Reinecke a făcut, împreună cu Ilampel, observația foarte întemeiată [^4], că «gleichzeitig mit [dem gewaltiger Vorstoss skythischer Stämme nach Westen] dürften auch die zahllosen Schatzfunde der jüngeren ungarischen Bronzezeit geborgen worden sein (tezaurlul dela Drajna ar fi un document pentru invazia pe valea Teleajenului — străvechil drum spre Ardeal), deren Erhaltung nur die Folge eines grossen kriegerischen Ereignisses sein konnte». Deci, cel mai târziu, «în sec. IX înainte de Hr., dacă nu chiar pe la a. 900 [^5], sc întâmplau în Dacia aceste spaimoase îngropări de tezaure de bronz, la veste că năvălesc Cimmerienii [^6].  
 
 Se pare în sfârșit că ar mai exista chiar un argument filologic. Vasmer, o. c., p 21, zice: limba scitică e mai arhaică decât avestica, «da es noch keine i-Epenthese bei 'Agiarës, 'Agiaurás, évagæes, usw. aufweist».  
 
 În sec. VIII Cimmerienii rupând cu ei și pe Thracii Tres ajung cu invaziile lor în Asia Mică (Strabo, I 3, 21). Atât Brückner cât și Hubert Schmidt au relevat că Troia VII reprezintă o adevărată barbarie.  
 
-$^{1)}$ Cf. și Rostovtzeff, o. c., p. 42.  
-$^{2)}$ Reinecke, l. c., 1898, p. 10, cu Ebert, p. 351.  
-$^{3)}$ Cf. Rostovtzeff, o. c., p. 114 și urm.  
-$^{4)}$ L. c., VI 1898, I, p. 11. Cf. însă și VI 1901, 2—3, p. 6.  
-$^{5)}$ Reinecke, l. c., 1901, p. 4.  
-$^{6)}$ Vezi literatura asupra Cimmerienilor la Vasmer, o. c., p. 6 sq. și mai aleșia Rostovtzeff, p. 225 și urm.  
+[^1] Cf. și Rostovtzeff, o. c., p. 42.  
+[^2] Reinecke, l. c., 1898, p. 10, cu Ebert, p. 351.  
+[^3] Cf. Rostovtzeff, o. c., p. 114 și urm.  
+[^4] L. c., VI 1898, I, p. 11. Cf. însă și VI 1901, 2—3, p. 6.  
+[^5] Reinecke, l. c., 1901, p. 4.  
+[^6] Vezi literatura asupra Cimmerienilor la Vasmer, o. c., p. 6 sq. și mai aleșia Rostovtzeff, p. 225 și urm.  
 
 
 
