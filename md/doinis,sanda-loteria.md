@@ -1,0 +1,2711 @@
+<!-- PAGE 001 -->
+sanda doiniș  
+lot
+
+
+![Illustration on page 001](3 Doiniș,Sanda - Loteria_ocr_figures/page-001.png)
+
+---
+
+<!-- PAGE 002 -->
+enia  
+
+editura tineretulvi
+
+
+![Illustration on page 002](3 Doiniș,Sanda - Loteria_ocr_figures/page-002.png)
+
+---
+
+<!-- PAGE 003 -->
+
+
+
+---
+
+<!-- PAGE 004 -->
+SANDA DOINIS  
+LOTERIA
+
+
+---
+
+<!-- PAGE 005 -->
+
+
+
+![Illustration on page 005](3 Doiniș,Sanda - Loteria_ocr_figures/page-005.png)
+
+---
+
+<!-- PAGE 006 -->
+sanda doiniș  
+loteria  
+1957  
+editura tinerețulur
+
+
+---
+
+<!-- PAGE 007 -->
+Coperta de Lucaci Ethel  
+Ilustrațiile de Fritz Karola
+
+
+---
+
+<!-- PAGE 008 -->
+47
+loteria
+
+
+![Illustration on page 008](3 Doiniș,Sanda - Loteria_ocr_figures/page-008.png)
+
+---
+
+<!-- PAGE 009 -->
+
+
+
+---
+
+<!-- PAGE 010 -->
+Toate s-au tras numai de la loteria lui Tache. Pe Tache nu-l iubea nimeni la noi în cartier. Era așa un fel de vlăjgan îmalt și ciolănos, cu obrazul lat și alb, peste care cădeau vesechic câteva suvițe de păr blond lipite deopotrivă de murdărie și unsoare. Să tot fi avut doi-trei ani mai mult ca noi, dar de dat fi dădea pe puțin opt-sprezece. Apărea cînd nici nu te gindeai, în marginea terenului pe care noi, cei din cartier, băteam mingea în zilele frumoase. Cum îl vedea Mișu, căpitanul echipiei, se oprea și-i striga de departe : „Ce-i mă, Tache, iar ai venit să ne fraierești cu ceva ?"
+
+Tache nu-l lua în seamă. Își proptea mâinile în șolduri, clipea agale dintr-un ochi și spunea : „La faceți-vă încoace ! Am niște actibilduri...!“ Și începea să-și golească buzunarele.
+
+Poate să-mi spună cine o vrea că la prăvălie găsești orice, dar lucruri ca cele din buzunarele lui Tache nu găsești, să bati șapte cartiere. Țurci nou-nouțe, lustruite, praștii cu guma groasă de toate culorile, cordoane lucioase și străveziu ca sticla, nasturi mari și mici, rotunzi și colțuroși, insigne „aproape de aur“ cum zice el, și fel și chip de alte minunăți la care noi ne uitam cu gura căscată, plini de respect și de invidie.
+
+Numai că pas de te lipește de ele. Tache le vinde scump și numai pe bani. Ai bani, dai și ai. N-ai, te uiți și îngălții în sec. E drept că Tache te sfătuiește : „Vrei
+
+7
+
+
+---
+
+<!-- PAGE 011 -->
+praștia? Cere bani de cinema de-acasă și ți-o vând". Ši tot drept e că de multe ori și cinematograful, și corpurile din recreația mare, și prăjiturile au intrat în buzunarele lui Tache, în schimbul unui fleac de năturiel, sau a unui capăt de gumă colorată.
+
+De la o vreme însă, băieții au căzut la bănuială. Pusesem mină de la mină și cumpăraserem de la Tache o cameră pentru mingea de fotbal, că a noastră se cam ferfeniște. Ne-o vînduse scump, dar noi eram bucuroși că aveam cameră nouă. Într-o zi, însă, Mișu venise furios: „Ne-a dus Tache, băieții. Am fost cu tata în oraș și am văzut la magazin camere câte vrei, cu prețul pe jumătate cit am plătit noi".
+
+De atunci, lui Tache îi mergea mai prost vînzarea. „Nu mai luăm de la tine — îi striga Mișu de cum îl vedea proptindu-se cu mîinile în șolduri în marginea terenului. Ne fraierești, că ești speculant".
+
+În ziua cînd a început toată povestea, Tache venise cu „marfă” proaspătă. Dar ce marfă! Desfăcuse o cutie veche de pantofi și scosese dinăuntru patru corăbii cum numai în poze s-au mai văzut vreodată. Cu catarge, cu pînze adevărate, cu tunuri de bord, ba și cu numele scris cu vopsea roșie lă prora: „Piratul” „Nelson” „Titanic“ și „Olandezul zburător”. De ce se numeau așa, habar n-aveam. Dar un lucru era limpede ca lumina zilei: aveau niște nume pe cinste. Noi ne-am îngălbentit cînd le-am văzut. Se potriveau parcă vasele noastre (cu care dădeam bătăliile navale pe marginea lacului), cioplite ca vai și amar, cu asemenea minunății? De atita admirație, nici n-am mai deschis gura să întrebăm cit costă. Se vedea de la o poștă că nu-s de nasul nostru.
+
+8
+
+
+---
+
+<!-- PAGE 012 -->
+Tache ne-a simțit pesemne. Le-a așezat frumos pe capacul cutiei și-a zis scurt :  
+— Cinci lei.  
+— Cum cinci lei ? am sărit noi ca arăl.  
+— Cinci lei bilețul.  
+— Care bilet ?  
+— Păi nu le vând ! Le pun la loterie. Am făcut niște bilețele. Dai cinci lei și tragi. Dacă ai noroc, te-ai făcut cu toată flota.  
+— Toată ?!!!  
+Parcă ni se lungiseră la toți urechile, între-atit nu ne venea să credem ce auzeam.  
+— Și dacă nu câștigă nici unul din echipă ? întrebă Mișu cu ochii la corăbii.  
+— Mai dai cinci lei și tragi încă un bilet. Fiecare poate să tragă de cite ori vrea.  
+Și proptindu-se iar cu miinile în șolduri ne privise pe rând, stăruint cu ochii asupra fiecăruia, de parcă voia să spună : ,,Cine știe dacă nu vor fi ale tale ?“ Pe urmă, rînduise cu grijă corăbiile în cîte, pusesese capacul și, cu pachetul sub braț, se întorsese spunîndu-ne scurt și hotărît.  
+— Vin mâine cu biletele.  
+Și plecase.  
+Noi stăteam locului tăcuți, privind în urma lui cu un fel de bucurie ascunsă : ,,Numai cinci lei !“ Mișu, care-și făcea de lucru legând mingea încococe și-ncolo cu vârful piciorului, spuse intr-un tîrziu ca pentru el : ,,Al naibii speculant ! Hai să ne vedem de treabă“.  
+„Să ne vedem de treabă“ înseamnă că sosisise ora cînd trebuia să ne ducem în tabără.
+
+
+---
+
+<!-- PAGE 013 -->
+
+
+
+![Illustration on page 013](3 Doiniș,Sanda - Loteria_ocr_figures/page-013.png)
+
+---
+
+<!-- PAGE 014 -->
+În urmă cu citeva săptămâni, luase ființa în cartier la noi o tabără de curte pentru pionierii din clasele mai mici. Mișu ne anunțase din prima zi chiar pe terenul de fotbal. „Mai băieți — spuse el, adunându-ne pe toți în pauza dintre reprize — din grupa noastră au rămas destui care nu se duc vara asta niciieri“.
+
+Asta așa era. Rămăseserăm vreo șapte. Fiecare din altă pricină. „O să stăm toată vara împreună — urmase Mișu — de capul nostru“.
+
+— Cum de capul nostru? sârise Gică. Trebuie să ne antrenăm serios pentru meciul de la toamnă cu „ăia“ („ăia“ erau cei dintr-a șasea). Poate crezi c-am uitat ce bătaie ne-au tras „ăia“ la sfârșitul școlii? Pe urmă, trebuie să punem și mina pe carte. Asta-i două la mină. Și de jucat, parcă n-avem voie să jucăm? E vacanța sau ce-i? Așa că unde vezi tu c-am fi de capul nostru?
+
+Mișu îl lăsase să sfirșească, privindu-l pe sub gene și legănându-se de pe un picior pe altul, după obiceiul lui.
+
+— Ei și? glumise el. Joacă-te cât vrei. Da’ alte treburî n-avem? Nu sintem aproape cei mai mari băieți din cartier?
+
+Nu știu de unde scosese Mișu asta cu „cei mai mari băieți“. Slavă domnului, în cartierul nostru erau destui băieți mai mari de doisprezece ani. Dar el o ținea mortiș de la începutul vacanței : cei mai mari.
+
+— Uite, de pildă — continuă Mișu — tabăra asta. Iș numai țînci în ea (unii aveau chiar zece ani, dar pentru Mișu tot țînci erau). Cum o să-și organizeze ei ziua în tabără? Cine o să-i învețe să se joace? Cine o să-i supravegheze?
+
+— Au instructor! îl încunoștiintă Gică, plictisit.
+
+— Și ce dacă au? Ce, instructorul are zece mîini și
+
+
+![Illustration on page 014](3 Doiniș,Sanda - Loteria_ocr_figures/page-014.png)
+
+---
+
+<!-- PAGE 015 -->
+zece picioare? Poate fi peste tot în același timp? Îi strică să-l ajute niște băieți mari ca noi?
+
+Avea dreptate. Ne uitam unul la altul, încurcați. Avea dreptate. Dar nici așa să-ți strici vacanța pentru niște țînici!
+
+— N-a zis nimeni să stăm toată ziua la tabără, răspunse Mișu privirilor noastre nehotărâte. Un ceas, două, dimineața. Un ceas, două, după masă. Și între timp ne antrenăm pentru meci. N-o să murim. Ba, dimpotrivă, o să facem o treabă bună și tot detasamentul o să ne laude la toamnă pe bună dreptate. Și o să-i batem și pe „aia“.
+
+Noi îl ascultam și, în gând, îl vedeam de pe acum raportînd la toamnă în fața detasamentului: „Grupa noastră...“. Și bineînțeles am zis cu toții „da“.
+
+Nu-i vorbă, că nu ne-a părut rău. În tabără, organizând jocuri, povestind, râzând, fabricînd redute din nisip sau aliniind brazdele cu flori ale fetelor, ne distram de minune. Și pe lîngă asta, eram „cei mari“.
+
+Numai în ziua aceea, cu gîndul la corăbiile lui Tache, parcă nu ne-a tihnit nimic. Eu, cel puțin, nu-mi puteam lua gîndul de la ele: „Piratul“, „Olandezul zburător... Seara, acasă, nu mi-am găsit liniștea pînă nu mi-a dat mama cinci lei. „De cinema, pentru toată săptămâna“, am asigurat-o eu. Și în minte numai „Pirati“ și „Olandezii zburători“ îmi umblau.
+
+Tot în seara aceea, mai tîrziu, a venit la mama mătușa Valeria. De fapt, e vecină cu noi și nu ne e de fel rudă, dar noi copiii, ne-am deprins să-i spunem mătușă. A venit s-o roage ceva, și mama a rîs cînd a auzit-o. Mătușa Valeria e tare fricoasă. Fiu-său, Ștefan, era plecat în tabără, unde va la mare, mi se pare. Și ei i s-a făcut dintr-o dată teamă să stea singură în casă. Așa c-a
+
+12
+
+
+---
+
+<!-- PAGE 016 -->
+venit la mama s-o roage : ,,Lasă-l pe Alexandru să doarmă la mine până o să se întoarcă Ștefan. Poți să răzi cât vrei, da’ eu dacă nu știu suflet de om în casă, n-am liniște. Așa-s eu, ce vrei ?“ Și mama ce să vrea ? M-a întrebat : ,,Te duci ?“ — ,,Mă duc“. Am plecat cu mătușa Valeria și tot drumul am ascultat-o povestind despre scrisorile lui Ștefan, despre mare, despre activitatea din tabără. Eu dădeam din cap și ziceam da, iar în minte mi se legănau patru corăbii ușoare cu pânze largi, albe, umflate de vânt. Și tot așa s-au legănat și în vis îndată ce am pus capul pe perna proaspăt infățătă în cinstea mea.
+
+A doua zi, Tache a adus pe teren biletele. Am tras toți, vă inchipuiți. Chiar și Mișu a tras mormâind printre dinți ,,speculantule“, chipurile, pentru Tache. N-am câștigat niciunul. ,,Nu se poate dintr-o dată, a ridicat Tache din umeri. Mai vin și miine, cu noroc“.
+
+Și iarăși nu mi-a mai tihnit nici treaba la tabără, nici chiotele țincilor, nici antrenamentul, nici toate celealte. Cele patru corăbii parcă erau bătute de furtună, așa mi se-nvălmășeau în cap. Seara când am ajuns la mătușa Valeria, eram cătrânit că nu vedeam înaintea ochilor decât mări și oceane revărșîndu-se și încêind total în cale : case, oameni, corăbii... mai ales corăbii. Ea mă aștepta cu masa : ,,Ți-am fiert porumb, Alexandru“, mi-a zis. Dar mie nu-mi ardea de porumb. Mie îmi trebuiau cinci lei. Atît numai. Cinci lei. Să pot lua mâine încă un bilet de la Tache. Cinci lei, nu mai mult. Degeaba îi dădusem tîrcoale mamei. ,,Nu-ți dau — se-ncruntase ea — abia ieri ți-am dat pentru toată săptămâna. Acum s-a sfîrșit. Să te-nveți să-ți gospodărești banii“.
+
+13
+
+
+---
+
+<!-- PAGE 017 -->
+Stăteam la masă și capul îmi huia : Titanic... cinci lei... olandezul... cinci lei. Tocmai atunci m-a trimis mătuşa Valeria după ochelari în odaia de alături.  
+— Dacă nu-s pe masă, caută-i în sertar.  
+Am tras sertarul. Erau acolo citeva gheme de ață, un teanc cu hârtii de cîte zece lei, nasturi, ace de siguranță, dar nici urmă de ochelari.  
+— Nu-s mătușă !  
+— Vei lingă oglindă ! mi-a strigat mătuşa de-alături. Erau acolo. I-am adus, mătușii, cu gîndurile rățacind a urea. ,,Mâine vine Tache cu biletele, mă gîndeam. O să tragă Mișu, o să tragă Cică și cine știe... poate unul din ei.."  
+Noaptea am visat — nu știu de ce — patru corăbii de toată frumusețea, plutind cu pînzele în vînt pe un ocean de hârtii de zece lei !  
+Dimineața, cînd m-am trezit, mătuşa Valeria plecase de mult la fabrică. Lîngă pat, îmi lăsase doi porumbi reci, fierți din ajun. Am stat mult în pat ronțând. Și deodată, mi-am adus aminte de sertarul mesei din odaia de alături. ,,Numai cinci lei“, îmi ziceam. Cîștig corăbiile. Pe urmă, săptămîna viitoare îmi dă mama altii bani de cinema și îi pun la loc. Cine o să știe ? Banii ăia, pesemne, sînt puși deoparte pentru vreo treabă anume. Se vede după cum stau că nu-s numărați în fiecare zi. Numai cinci lei ! Am sărit din pat, m-am îmbrăcat, am luat o hârtie de zece lei și am plecat la antrenament. Dar cînd a venit Tache, m-a fulgerat un gînd. Dac-ă lua două bilete ? Așa aș fi mai sigur că... I-am dat lui Tache hârtia de zece lei. Îmi bătea inima uitîndu-mă la mina lui care amesteca agale biletele întro  
+
+14
+
+
+---
+
+<!-- PAGE 018 -->
+cutie rotundă. Apoi am vîrît și eu mîna și-am tras. Tache s-a uitat și a rîs.
+— Nici azi n-ai noroc. Poate mîine. A băgat banii în buzunar și a plecat. Mai vin, n-aveți grija.
+Atunci a sărit Mișu. Ca ars a sărit, deși tăcuse toată vremea cu ochii în pămînt :
+— Ba să nu mai vii ! N-avem bani de aruncat pentru șmecherile tale. Să nu mai vii că nu mai jucăm la loteria asta de pungași. Ai auzit, speculantule ?
+Tache a ridicat din umeri și s-a depărtat la fel de agale cum venise. În urma lui, Mișu s-a încruntat ușor, s-a legănat o vreme de pe un picior pe celălalt și a anunțat :
+— De mîine, nu mai trage nimeni ! Asta-i porcărie curată. Și acum, la tabără, înainte marș !
+Seara am mâncat în silă cu ochii în farfurie. Mătușa Valeria îmi punea dinainte ba una, ba alta.
+— Văd că te cam plânsesți cu mine. De, eu în femeie bătrină !
+— Nu, mătușă, am asigurat-o eu. Mă gîndeam așa...
+— Ai cam slăbit, a urmat ca umplindu-mi farfuria cu găluști. Să faci bine să te pui pe mâncare că pentru tine le-am făcut.
+Nu era adevărat că slăbisem. Poate îmi era numai obrazul tras de supărare. Mătușa a strîns masa, a făcut patul, m-a sărutat și ți-a strecurat mîna sub perna mea șoptindu-mi : „Pentru mîine, sǎ-ți iei înghețată”. Și cînd am pipăit, în urma ei, ceasaful, am găsit patru monede reci de la răcoarea așternutului: doi lei. Le-am ținut multă vreme în mînă ascultînd cu ochii deschiși, zgomotul farfurilor pe care mătușa le spăla în bucătărie. Într-un tîrziu am adormit strîngînd monedile în pumn.
+15
+
+
+---
+
+<!-- PAGE 019 -->
+Le mai aveam în mină a doua zi, când m-am trezit.  
+M-am uitat la ele abătut: numai doi lei. Nici măcar pentru un bilet. M-am îmbrăcat și am dat să plec când deodată mi-am amintit. Mișu fi spusese lui Tache să nu mai vină. Asta înseamnă că Tache o să-și ia azi pachetul subsuoară și o să se ducă în altă parte. Și poate un alt băiat — unul necunoscut, care nici măcar în grupa noastră nu e — o să tragă biletul cel norocos. Și toate cele patru corâbii... toate...  
+La gândul ăsta n-am mai putut răbda. M-am repezit la sertar, am luat la întîmplare două hîrtii și am zbuchit-o pe ușă. Am ocolit târâra — la ora aceea băieții erau acolo — și am apucat-o spre cinematograful din cartier. Cam pe acolo, prin față, își făcea Tache veacul cu o ceată de vlağani pe măsura lui. Am dat să plec necăjit, când dintr-un gang aud vocea lui Tache :  
+— Stai, bă, să le-amestec. Ce te-nfigi ?  
+M-am repezit într-un suflet. În capătul gangului, Tache ghemuit pe vine, cu toată ceata în jur, amesteca biletele în cutia cea rotundă. Când m-a văzut, a rîs cu gura până la urechi.  
+— Ia uite-l, bă, a venit după bilete ! Cite vrei ? — m-a întrebat. Eu am pipăit banii în buzunar, cu ochii la cei din jurul lui, și m-am hotărît :  
+— Patru !  
+Tache a rostogolit ochii a uimire și mi-a țintins cutia. Am tras. Întîi eu. Am privit biletele pe rând : niciunul nu era câștigător.  
+— N-ai noroc și pace ! Ce să-ți fac ? a mormâit Tache și le-a țintins cutia celorlalți. Eu am rămas ținut locului cu ochii la minile care trăgeau pe rând biletele.  
+Dar se vede că nici ei nu erau mai norocoși. Unul a  
+16
+
+
+---
+
+<!-- PAGE 020 -->
+spus o vorbă urită. Altul a oftat cu năduf. „Păcat ! Dacă le cîștigam, le vindeam și umflam un sutic !“ Auzi pentru ce voia el corăbiile ! Să le vândă ! Tache a strîns banii, i-a băgat în buzunar fără să-i numere, înălțînd din umeri : „Gata ? V-ați curățat ? De, acum era bine să fi tras : s-au împușinat biletele și-l nimerești mai iute pe-ăla norocos !“
+
+2
+
+
+![Illustration on page 020](3 Doiniș,Sanda - Loteria_ocr_figures/page-020.png)
+
+---
+
+<!-- PAGE 021 -->
+La asta nu mă gândisem. Și totuși era simplu, simplu de tot. Avea dreptate. Am luat una din corăbiii în mînă : pînzele albe parcă se umflau gata de drum, iar luciul vopselii mi se răsfringea printre degete în șuvițe colo-rate, tremurătoare. Stringeam lemnul subțire, și mîna parcă mi se lipise de pojghita aceea lucioasă. Când te gîndești că biletele se împuținaseră, iar cel norocos era acum la îndemâna oricui... poate a celui care voia să le vîndă !
+
+Am pus corabia jos și i-am spus lui Tache :
+— Mai stai pe-aici ?
+— Stau ! Te duci după biștari ?
+Am dat din cap și am pornit-o la fugă spre casă. Am luat banii din sertar, cîți am apucat și m-am întors în goană.
+Pe drum i-am numărat : erau patru hirtii de cite zece.
+— Opt bilete, i-am spus lui Tache cînd am ajuns, cu ochii la corăbiia.
+Tache mi-a țintins cutia și am tras. Unul, încă unul, încă unul... niciunul. Da. Nici unul nu era câștigător. Tache a deschis gura, pesemne ca să mă mîngâie :
+— De, dacă n-ai...
+Dar n-a apucat să-și sfirșească vorba. Unul din vlăj-gani i-a smuls cutia din mână și a început să scoto-cească printre puținele bilete rămase. Deodată l-am auzit râcnind :
+— Mă, ne-ai dus, mă ! Ne-ai dus și ne-ai luat banii !
+Fără să știu cum, m-am trezit pe marginea trotuarului privind la ceata care alerga după Tache, țipînd și amenințîndu-l cu pumni. Am primit așa pînă au dispărut după un colț și glasurile li s-au pierdut în zgomotul străzii. Atunci m-am întors și am pornit-o încet pe străzi.
+
+18
+
+
+---
+
+<!-- PAGE 022 -->
+Am ocolit din nou tabără, m-am dus la mătuşa Valeria și m-am trîntit pe pat. Eram tot cu gândul la corâbiia. Va să zică Tache ne înșelase pe toți. Nu pusesе nici un bilet cîştigător. Niciunul. Mai tîrziu — trecurse de mult prînzul — l-am auzit pe Mişu strigîndu-mă. Abia atunci am văzut cită vreme trecurse.
+
+— Unde-ai fost, mă? m-a întîmpinat Mişu. Unde-ai umblat toată dimineaţa de n-ai dat pe la tabără?
+
+Am îndrugat ceva, nici eu nu știu ce.
+
+— Hai la antrenament! m-a zorit el. De Tache ai auzit?
+
+— De Tache? Ce s- aud ?
+
+— L-au dus la militele azi dimineaţă !
+
+— La militele ?
+
+— Da. L-au prins c-a furat. Corăbiorele alee — ții minte, le pusesse la loterie și-am tras și noi — , ei bine, alea erau furate.
+
+— Cum furate ?
+
+— Bine. Le-a furat dintr-o prăvălie. Azi dimineaţă a fost o bătaie, sau cam aşa ceva, şi l-au prins. Pe urmă s-a aflat cum stătea treaba cu corâbiile...
+
+Mergeam încet, cu capul plecat, fără să scot un cu-vînt...
+
+— Mie, drept să spun, mi-e rușine ! a adăugat Mişu încet. Şi noi am tras la loteria aia cu corâbiorele. Toc-mai noi, băieți în toată firea şi aproape cei mai mari din cartier, am avut de-a face cu un hot.
+
+Atunci, abia atunci, mi-am adus aminte de sertar, de hîrtile de zece lei, de mătuşa Valeria... Luasem de-acolo săptezeci de lei, fără ştirea nimănui, ca să-i umplu buzunarele lui Tache.
+
+2*
+
+19
+
+
+---
+
+<!-- PAGE 023 -->
+M-am uitat la Mișu, la obrazul lui pe care stăruia, ca o umbra, gindul că stătuse de vorbă cu un hoț. Da' eu ? — îmi spuneam. Eu sunt chiar între voi. Și totuși eu... Mișu s-a întors spre mine : — Zău, mă, mi-e rușine ! Atunci l-am luat de mână și i-am spus totul.
+
+Se nimerise o dimineață caldă de miez de vară. Soarele ardea de credeai că acuși-acuși o să-ncapă să ți se topească pavajul sub picioare. Mă uitam la obrazul lui Mișu, acoperit tot de broboane mari de sudoare, și mă gândeam : „Numai eu sunt vinovat ! Numai eu !“ Mișu tăcea, privind atent la zidul de piatră, dincolo de care, coșurile fabricii înălțau trâmb de fum. Deodată mă prinsese de mână arătându-mi o porțiță în zid : — Pe-aici ! Și mă pomenii intr-o gheretă strâmtă, ca un chioșc de ziare. Un om măruntel ne privi cu mirare pe deasupra ochelarilor. — Încotro, voinicilor ? — La serviciul personalului ! Avem treabă. Omul îl măsură pe Mișu cu și mai strașnică mirare : — Ce fel de treabă ? Aveți pe cineva acolo ? Mișu se gândi o clipă, apoi încuviintă plin de serio-zitate. — Îhî ! — Atunci, intrați ! Și-am intrat. Nu știu nici cit am mers, nici pe unde, nici cum. Mă uitam la obrazul asudat al lui Mișu și-mi venea s-o iau la goană îndărăt spre poartă. Știu numai că intr-un tîrziu m-am pomenit în fața unui birou și că
+
+20
+
+
+---
+
+<!-- PAGE 024 -->
+la biroul acesta stătea un om căruiia Mișu îi explica de zor :
+— Înțelegeți, tovarășe ? Vrem să lucrăm ceva. Orice ar fi : să încărcăm, să descărcăm, să impachetăm... orice e nevoie. Și primim orice leafa. Noi nu suntem mofturoși ca alții : că leafa-i mică și altele... oricât ar fi... Uite, noi (Mișu făcu o socoteală rapidă în gând) noi ne angajăm cu zece lei pe zi timp de-o săptămână. Zece lei. Și asta pentru amîndoi... Sîntem voinici... uitati-vă... (Mișu își bombă pieptul, înălțindu-se pe vîrful picioarelor). Uitați-vă numai... gândiți-vă ce putere de muncă...
+Omul rîdea incetisitor și-și făcea de lucru cu o hirtie pe birou. Apoi ne privi pe rînd și zîmbetul îi stăruia pe obraz. Intr-un tîrziu, văzând că Mișu a isprăvit, întrebă domol :
+— Pentru ce vă angajați ?
+— Ne trebuie bani ! spuse Mișu. Parcă-și ferise privirea într-o parte, dar nu aș putea să jur.
+— Pentru ce vă trebuie bani ? stărui omul.
+Obrazul lui Mișu se făcu alb, alb ca hîrtia pe care o privea.
+— Asta... asta e o cheistune personală.
+Mișu vorbea rar, c-un fel de poticneală în cuvinte.
+Omul tăcu iar o vreme, cumpănind parcă un anume lucru. Mișu îl urmărea atent, mișcîndu-se stingherit de pe un picior pe altul.
+— O să lucrăm bine. O să muncim cât zece ! Vă rog... vă rog frumos ajutați-ne. Numai pe șapte zile...
+Omul dădu din cap c-un fel de mâhnire :
+— Aș vrea să v-ajut ! Zău c-aș vrea, băieți ! Dar nu se poate. Ne oprește legea. N-avem voie să angajăm copii în fabrică. Înțelegeți ?
+21
+
+
+---
+
+<!-- PAGE 025 -->
+— Noi nu sîntem copii, stăruie Mișu. Sîntem cei mai mari băieți din cartier.
+— Nu se poate, băieți. Tocmai noi, fabrica noastră să calce legea? Nu se poate...
+Îmi venea să plîng, cât eram eu de cel mai mare băiat din cartier. Dar avea dreptate. Cum o să calce legea?
+— Asta înseamnă că nici în altă parte... nici la altă fabrică?
+Omul clătină din cap:
+— Nicăieri, băieți. Nicăieri. Îmi pare rău.
+Și iarăși, fără să știu cum, m-am pomenit în stradă. Mi-era ciudă și știam bine că n-are de ce să-mi fie. Așa era. De câte ori auzisem noi lucrurile aceste la școală, acasă. Cum or să angajeze copii? Copiii care trebuie să meargă la școală, să învețe, să se joace în vacanță?
+— Are dreptate! spusei cu glas tare.
+— Cred și eu că are! Parcă eu spun altfel? Dar n-avem ce face! O să ne angajăm la un particular.
+Asta era! Cum de-i dăduse în gînd lui Mișu și mie nu? Asta era! La un particular. Deștept băiat Mișu ăsta. Și ce prieten! Parcă-l auzeam spunîndu-mi în ajun: „Măi, trebuie să pui banii la loc. Dar repede, întelegi? Repede! O să muncim. Te-ajut și eu să-i pui la loc. O să muncim și o să cinstigăm șaptezeci de lei. Totul e să găsim de lucru. Și când oi vedea banii la locul lor în sertar, o să-ți dau una să mă ții minte, auzi?” Ce prieten!
+Mișu făcea socoteli mai departe:
+— Un particular e altceva! L-am auzit eu pe tată că particularii se prefac citeodată că mai uită de legi. Și o să lăsăm și noi mai ieftin: opt lei pe zi. Lucrăm
+
+22
+
+
+---
+
+<!-- PAGE 026 -->
+nouă zile. Opt ori nouă șapte-ș-doi. Șaptezeci pui la loc și cu doi lei cumperi flori pentru mătușa Valeria.
+Afurisită treabă ! In ziua aceea eram mai rău ca țîncii din tabără din curte. Pentru orice mă podideau lacrimile.
+Am clipit de câteva ori cu ochii în altă parte :
+— Hai să căutăm un particular.
+Și am căutat. O zi întreagă am bătut străzile, nemîncați, căutind. Dar ce folos ! Peste tot... peste tot la fel :
+„Ce nevoie aveți voi de lucru ? Duceți-vă și vă jucați. Sînteți doar în vacanță“.
+Și-am fi făcut orice, orice.. Am fi măturat, am fi spălat vase, am fi descărcat zarzavat, am fi cărat saci, orice. Am fi făcut și pe educatoarele. Vorbesc serios ! Ideea ne-a venit trecînd pe lîngă o curte unde plingea un copil. Mișu s-a oprit în fața porții, nehotărît :
+— Ce, crezi că n-am putea ?
+— Ce să putem ?
+— Să îngrijim de copil ?
+— Cum o să-l îngrijim ? Ce știm noi să-i facem ?
+— Las' că știm ! a hotărît Mișu și m-a tras de mînă în curte.
+Dar nici aici n-a fost chip. Mama copilului ne-a privit cu neîncredere.
+„Ce vă pricepeți voi să faceți ? Vi s-a făcut poftă de joacă, pesemne ! Ia poftiți și jucați-vă cu cei de seama voastră !“
+— Îl îngrijim ieftin, a stăruit Mișu — numai șapte lei pe zi.
+Femeia s-a încruntat. N-a scos o vorbă. A deschis poarta și ne-a făcut un semn scurt :
+„Afără ! Ar putea să vă fie rușine ! Pionieri ! Pfu !“
+Mi-eră într-adevăr rușine.
+
+23
+
+
+---
+
+<!-- PAGE 027 -->
+Se însere de mult și noi ne întorcem necăjiți spre casă fără să fi cîștigat nici un leu. Mișu era îngîndurat : — Măi, nici cu particularii nu mai poți face treabă. N-ai văzut ? — Am văzut ! Îmi venea să intru în pământ de rușine și de ciudă. Ce-o să mă fac ? Cum să dau ochi cu mătușa Valeria și să-i spun c-o prădasem ca un netrebnic ? Mergeam lîngă Mișu și o vedeam parcă punîndu-mi dinainte porumbul fiert, înfățișîndu-mi patul proaspăt, strecurîndu-mi monezile sub pernă „pentru îngețată”. Deodată Mișu mă trase de mîncea, arătându-mi un morman de lemne în fața unei curți pe trotuar. Un om țși încărca tocmai brațul cu lemne. Mișu se opri lîngă gard. — Vreți să vă ajutăm, tovarășe ? Altfel n-o să prididiți, că-s multe... — Is multe-al naibii ! spuse omul. Mie îmi bătea inima mai-mai să iasă afară din piept. — Să vă ajutăm noi ! stăruii Mișu. Oricît, trei brațe... — Șase... zîmbi omul făcîndu-ne semn : hai, puneți mîna ! Și ne-am apucat de treabă. Am făcut o targă din trei scînduri și-am început să cărăm lemnele lîngă zidul casei. — Să le-aruncăm în pivniță, a propus Mișu. Omul a oftat : „Mai e pînă la pivniță. Trebuie sparte și-ibia pe urmă aruncate și stivuite în pivniță.“ Mișu mi-a aruncat o privire furișă și-a pus mîna pe targă : „Hai !“ 24
+
+
+---
+
+<!-- PAGE 028 -->
+Se făcuse aproape nouă cînd am isprăvit. Omul pri- vea mormanul de lîngă zidul casei, ștergîndu-și cu do- sul palmei sudoarea de pe obraz.
+
+— Bună treabă ! Vă mulțumesc, băieți. Îmi pare rău că nu pot să vă dau măcar ceva de mâncare că vi s-o fi făcut foame după-atîta du-te vino. Nevastă-mea nici nu s-a întors de la fabrică pînă la ceasul ăsta. Tocmai acum s-a nimerit, păcatele, să avem de lucru pînă peste cap amîndoi... Abia seara venim acasă... Dacă-o da o ploaie... În sfirșit, om vede a. Vă mulțumesc, băieți !...
+
+— Tovarășe...
+
+Mișu a început să se miște de pe un picior pe altul.
+
+— Tovarășe, vrei să venim noi mîine să le spargem ? Mâine, poimîine, cînd o fi. Le aruncăm în pivniță, le-asezăm... și gata treaba.
+
+— Voi, băieți ? Asta nu-i treabă pentru voi. E greu...
+
+— Aș ! se-ncruntă Mișu. Ce-i greu ? Parcă noi acasă n-am mai spart niciodată lemne ? Oho ! De cîte ori... Și pe urmă — Mișu s-a mai legănăt o vreme — pe urmă, noi nici nu vă cerem mult. Zece lei pe zi.
+
+— Cum zece lei ?
+
+— Pentru amîndoi ! s-a grăbit Mișu s-adaug. Zece lei pentru amîndoi.
+
+Omul n-a spus nimic. S-a așezat pe-o buturugă și a început să se joace cu niște surcele de pe jos. Intr-un tîrziu a rostit ca pentru el : „Cum se-ntâlă omul ! Și eu mă gindeam : destoinici băieți ! Pionieri, de ! Săr să te ajute ca lei ! Și cînd colo !“...
+
+Eu am lăsat capul în jos. Mișu a încetat legănătul, a fghijit odată-n sec și s-a dus mai aproape.
+
+— Nu-i așa ! a spus el. Noi oricînd... oricînd... o să
+
+25
+
+
+---
+
+<!-- PAGE 029 -->
+vedeți la anul cînd o să aduceți lemnule. Dar acum, acum ne trebuie niște bani. S-a întîmplat ceva...
+— Ceva grav ?
+Omul îl privea pe Mișu dintr-o parte ca și cum ar fi vrut să ghicească ceva ascuns, foarte ascuns.
+— Grav de tot ! a oftat Mișu.
+— Și vă trebuie mulți bani ?
+— Mulți. Șaptezeci de lei.
+Pesemne că pe chipurile noastre se citea atîta mîlnire, încît omul s-a sucit într-o parte încurcat.
+— Nu puteți cere părinților ?
+— Nu.
+— Nici altcuiva ?
+— Nici. Numai noi știm.
+— Poate v-aș împrumuta eu... a încercat omul.
+Dar eu nu l-am lăsat să sfirșească.
+— Nu, așa nu se poate. Trebuie să muncim pentru ei.
+— Va să zică e foarte, foarte grav ?
+Noi am tăcut cu ochii la grămadă de lemne.
+— Sinteti siguri că altfel nu se poate ?
+— Nu, am hotărît noi intr-un glas. Numai așa se poate.
+De azi dimineată umblăm.
+Omul n-a mai zis nimic. S-a ridicat, și-a scuturat mîinile de rumegușul surcelor și ne-a arătat ferestruica pivniței.
+— Dacă altfel nu se poate... O să vă las mîine acolo toporul. Le spargeți și le aruncăți pe ferestruică. O să vă las și mâncare-n bucătărie, că nu e nimeni acasă ziua. Cînd o să osteniți, vă duceți acasă. Nu trebuie să mă așteptați. E bine ?
+26
+
+
+---
+
+<!-- PAGE 030 -->
+Eu n-aș fi putut să scot un cuvânt pentru toate comorile din lume. Și lui Mișu i-a trebuit vreme bună pînă să poată îngina cu glasul sugrumat :  
+— Acum nu-i, dar o să fie bine !  
+Eram la poartă, cînd omul ne-a strigat din urmă.  
+— Și... băieți, dacă-i vorba de muncă cinstită, apoi și plata trebuie să fie la fel : o să vă dau zece lei pe zi de fiecare...  
+
+În seara aceea, nu mi-a mai păsat de nimic : nici de cearta mamei, care fusese îngrijată toată ziua, nici de mustriile băieților că am lipsit de la antrenament, nici de mirarea mătușii Valeria, care-și închipuise că nu mai vin. Mi-era gindul la altceva. M-am dezmeticit doar cînd am văzut-o pe tușa Valeria că se scolă să-și caute ochelarii.  
+— Or fi în sertar, a zis.  
+Și-a plecat să-i caute. Pînă s-a-ntors, am amețit de câteva ori. Noroc că a apărut cu ochelarii pe nas, zîmbind :  
+— Erau în buzunarul halatului. Așa fac și la fabrică : îți uit peste tot, unde mă duc.  
+
+Mult timp inainte de a adormi m-am gândit. La toate... La Mișu, la Tache, la ochelari, la legile care nu dau voie să se angajeze copii în fabrică, la stiva de lemne... și iar la Mișu...  
+
+A doua zi, dis-de-dimineață eram la treabă. Așezam lemnele pe buturugă și le despicam cu schimbul. În vremea asta, celălalt le arunca în pivniță. N-am prea vorbit mult în zilele acelea. Cum încercam să deschid gura, Mișu mă zorea : „Hai, lasă vorba ! Crezi că-n fabrică se vorbește așa, toată ziua, cum sporovăim noi ! Uite câte lemne mai sînt !” Și iar zoream. Nu era de loc  
+
+27
+
+
+---
+
+<!-- PAGE 031 -->
+ușor. Unele buturugi se despicau anevoie și pierdeam o mulțime de vreme cu ele. Dar am muncit pe rupite, și în cea de-a treia seară, lemnene erau stivuite frumos în pivniță, de-a lungul pereților, pînă-n tavan. Am pus toporul la loc, am măturat surcelele și am așteptat.
+
+Într-un tîrziu, am auzit poarta deschizându-se și am tresărit cu răsuflearea opriță de emoție. Omul s-a uitat prin ferestreică la șirurile de lemne așezate toate pe-o potrivă și a dat din cap mulțumit.
+
+— Bună treabă, băieti! Da’ nu trebuia să zoriți așa !
+— Spuneați de ploaie… s-a scuzat Mișu încurcat.
+— Spuneam… da’ nu era foc. Mă bate gândul că n-ai vrut să luați banii pe degeaba, așa-i ?
+Noi am tăcut. Omul a scos din buzunar banii și i-a numărat lui Mișu în palmă : ,,Uite șaptezeci de lei…
+— Nu se poate ! s-a încruntat Mișu. Noi n-am lucrat decît trei zile. Asta face șaizeci de lei.
+— Ba se poate ! Omul i-a împins lui Mișu banii înăpoi în palmă. Da’ răsalaltăieri seara nu m-ai ajutat să car lemnele în curte ? Aia n-a fost treabă ? Dacă-i vorba de muncă cinstită, apoi v-am spus : și plata cinstită !
+Poate pentru că ne privea așa, cu seriozitate, dar și cu o umbră de rîs în glas, sau poate pentru că se străduia să-nchidă palma lui Mișu peste banii, nici eu nu știu de ce… dar m-am pomenit întrebându-l din senin.
+— Tovarășe, ai și dumneata un băiat ?
+— N-am, a clătinat el capul. N-am… dar îi înțeleg pe băieti, asta e !
+Și după asta ne-a întins mîna prietenese :
+— Ei, a zis, acum e bine ?
+— E bine.
+
+28
+
+
+---
+
+<!-- PAGE 032 -->
+Și-am plecat. In fața casei m-am despărțit de Mișu.
+Mi-a pus banii în mină și, o dată cu hîrtia bătoasă și aspră, am simțit degetele lui calde. care mă strângeau ușor.
+
+— Acum, gata! Să vii mâine la antrenament. Auzi?
+— Am să vin, am spus. Și o să le tragem o bătaie la toamnă „ălora” să ne țină minte.
+
+Mișu a rîs și multă vreme după ce l-am văzut dînd colțul și dispărând, rîsul lui mi-a stăruit în minte prietenos, vesel, plin de bunătate și căldură. Pe urmă am intrat în casă. Mătușa Valeria mă aștepta cu masa. Citea o scrisoare. M-am strecurat în odaia de-alături, am tras sertarul și-am pus banii la loc. M-am întors și m-am așezat la masă.
+
+— Unde tot umbli, flăcăule? Stai și bagă ceva în gură. Maică-ta se plinge că nu mai dai pe-acasă de trei zile. Umbli nemîncat, hai-hui...
+
+— Am avut treabă, mătușă.
+
+Mâncarea mi se părea gustoasă și eram vesel, vesel, c-aș fi chiuit dacă nu mi-ar fi fost rușine de mătușa Valeria.
+
+— Mi-a scris Ștefan. Mătușa mă privea pe deasupra ochelarilor. I-auzi ce spune... „Dragă mamă, îmi pare bine că Alexandru stă cu tine pînă mă-ntorc eu. Știu că ți-ar fi fost urît, că doar te cunosc eu, măicuță. Alexandru e băiat bun. Îi trimit în dar ceva lucrat de mine aici, în tabără, și-i mulțumesc pentru tot...“ Ia, uită-te! mi-a arătat mătușa întrerupîndu-se din citit. Și a plecat la bucătărie după mâncare.
+
+Pe măsuța de linge pat, în mijlocul hîrtiilor desfăcute stăteau aliniatete trei avioane mici să-ți incapă în palmă.
+Le-am luat în mină : erau cioplite în lemn. N-aveau nici
+
+29
+
+
+---
+
+<!-- PAGE 033 -->
+tunuri de bord, nu erau nici lăcuite și nici nu purtau scrise pe fuselaj nume pompoase : „Piratul“, „Olandezul zburător“... Dar mie mi se păreau frumoase, frumoase de neînchipuit. Și în minte, vedeam parcă niște bătălii aeriene cum n-au fost altele în cartier. Niște bătălii față de care cele navale erau o simplă joacă de copii. Le-am privit o vreme. Apoi, ținîndu-le în mină, m-am îndreptat spre bucătărie.
+
+— Mătușă Valeria, trebuie să-ți spun ceva...
+
+1956
+
+
+---
+
+<!-- PAGE 034 -->
+sfintuța
+
+
+![Illustration on page 034](3 Doiniș,Sanda - Loteria_ocr_figures/page-034.png)
+
+---
+
+<!-- PAGE 035 -->
+
+
+
+![Illustration on page 035](3 Doiniș,Sanda - Loteria_ocr_figures/page-035.png)
+
+---
+
+<!-- PAGE 036 -->
+F usese botezată creștinește cu ani în urmă, înt-o vară când arșița pîrjolise cîmpurile atît de cumplit, că se uscaseră pînă și rădăcinile în pămîntul crăpat de un lat de palmă. Cînd preotul o cu fundase în cazanul cu apă, fetița ți pase ascuțit și femeile se îmchinaseră și bătuseră mătănii cu fruntea de pământ. Îi dădu seră nu- mele acelei sfinte de la care oamenii așteptau dezlegarea plioilor și roada cîmpurilor arse : Paraschiva. Născa fetiței — bunică-sa — o primise în brațe, udă și vînată de plîns, iar maica- sa care se ținea după datină în tindă bisericii, o privise lung, cu o umbră de nădejde în ochi, murmurând ca pentru sine : „Numai de-ar da dumnezeu !“ Și în gînd, făcuse un legămînt.
+
+Acum, după doisprezece ani, să fi bătut satul în lung și în lat, rar ai fi găsit un om care să-și amintească ade-vărul nume al fetiței. Cînd trecea pe uliță cu pas mă-runț și așezat, strîngându-și băsmăluța cenușie sub bărbie, femeile o petreceau cu privirea și clătinau din cap: — Tot prăpădită Sfântuta lu' Dima, săracă ! Câte una o îmbia din poartă, că-i știa pe ai ei nevoiași și cu îmbucătura numărătă : — Sfintuțo, hai încoa, să-ți dau niște ouă ! Fetița se oprea cu o mișcare ferită care-i împingeau umerii puțin înainte : — Nu se poate. Acuși e post. Și pleca mai departe cu același pas măsurat și așezat.
+
+3 – Loteria
+33
+
+
+---
+
+<!-- PAGE 037 -->
+Se deprinsese întâi cu numele acesta — Sfintuța — că în ziua în care învățătoarea cea nouă o strigase la lecție — „să spună Dima Paraschiva !“ — fetița tresărise și se îmroșișe ca focul. Apoi învățătoarea parcă-nt-adins o striga uneori așa.
+
+Într-una din zile, la amiază, fetița venise acasă și-i ținuse calea maică-si, în curte.
+
+— Știi, iar mi-a zis la școală Paraschiva. Doamna a nouă mi-a zis... Și pe drum, Trică mi-a spus că-i mai frumos numele ăsta decît... (fetița șovăise și coborîse glasul) decit... Sfintuța.
+
+Maică-sa nu-i răspunsese de-a dreptul. Strînsese doar buzele, subțindu-le a scârbă și o privise dintr-o parte : — Păcătoasă școală ! Și tu, mai păcătoasă că te iei după vorbele unuia care nici măcar nume de creștin nu are.
+
+Și-și văzuse mai departe de treabă. Frămînta înt-o teică târîte pentru porc și după câteva clipe uită de întrebarea fetiței. Dar îi fu dat să-și aducă aminte de ea mai repede decît își închipuise. În poarta deschisă se ivise capul unui băiat, abia mai răsărit decît uluca.
+
+— Paraschivo, ești acasă ? Femeia se îndreptase din șale și-l fulgerase cu o privire dușmănoasă. — Ce vrei cu ea? Ai uitat cum o cheamă? — Să vie mâine dimineață la școală. Avem adunare pentru serbarea de sfirșit de an... Că o să facem serbare. — Faceți ce-o-ți vrea. Da’ mâine, Sfintuța merge la slujbă. N-are ce căta la școală în zi de duminică. — Nici după biserică ? se încumetase băiatul. — Nici !
+
+34
+
+
+![Illustration on page 037](3 Doiniș,Sanda - Loteria_ocr_figures/page-037.png)
+
+---
+
+<!-- PAGE 038 -->
+Și în urma băiatului care se dezlipea parcă cu părere de rău de ulucă, femeia scuipase-n cruce în jurul ei: „Pînă-n tindă ți se vîră păcatul, doamne iartă-mă!” De lă geamul odăii, Sfintuța îl petrecuse cu privirea pe Trică pînă se pierduse după colțul ogrăzii. Auzise vorbele maică-si și nu cutezase să se arate în tindă. Of-tase, apoi își scosese din tășcută o carte și-un caiet, să-și facă harta la geografie pe a doua zi. Stătu așa, multă vreme, aplecată asupra caietului, urmărind cu dîră subțire a creionului, drumul cotit al apelor sau îngroșând liniile munților. Trică o învățase să coloreze hărțile întocmai ca în carte și împărțise cu ea cutia lui de creioane colorate. Era un băiat bun Trică. Cu ea, era cel mai bun din toată clasa. Și dacă-și pusesese el în gând să facă el o serbare de sfîrșit de an, o să iasă o serbare de o să se minuneze tot satul. Ce bine ar fi fost s-o fi lăsat maică-sa și pe ea, după biserică! Sau poate, chiar să lipsească de la slujbă. La gîndul ăsta, fetița tresări ca scuturată de o spaimă, se uită în jur, își făcu iute cruce și începu să urmărească cu glas tare drumul apelor și al creionului: „...cotește la dreapta, străbate munții Carpați, trece prin pasul Bran și o pornește în jos spre orașul...”
+
+Trică ședea pe marginea patului, bălăngănindu-și picioarele înainte și înapoi, alene, ca un om care încă nu s-a hotărît dacă legănătul picioarelor este sau nu o ocupație interesantă. Se uită la maică-sa care corecta pe un colț al mesei caietele la limba română.
+— Iar scrii alandala — spuse ea, închizînd ultimul caiet. Și iar încurci substantivele comune cu cele pro-
+
+3*  
+35
+
+
+---
+
+<!-- PAGE 039 -->
+prii. O să mă faci de rîs, ți-am spus. Ce o să zică lu- mea ? Băiatul învățătoarei, și foaia pictată cu roșu. Tu m-asculți, Trică ?
+— Te-asculți...
+— Ai un caiet plin de greșeli, asta-ți spuneam. Mă- car de m-ai întreba cînd îți faci lecțiile. Dar tu...
+Trică se uita la caietul din mâna maică-si : ar fi vrut să-i pară foarte rău din pricina filei pictate cu roșu, dar nu izbutea. Era cu gîndul în altă parte.
+— Ai vorbit cu mama Sfintuței ? întrebă el după citeva clipe.
+— Am vorbit.
+— Și ce spune ?
+Maică-sa începu să strîngă caietele, ferindu-se parcă să-l privească-n ochi.
+— Zice că asta vrea, asta face. O duce.
+Picioarele băiatului se opriră moi din legănat, de parcă cineva I-ar fi lovit brusc peste genunchi.
+— N-o lasă nici măcar pînă la serbare ?
+— Nu. Cică serbarea cade după hram. Și ea vrea s-o ducă chiar în ziua hramului.
+— I-ai spus de premiu ?
+— I-am spus, dar ce folos ? Puțin îi pasă ei de premiu. Îi tot dă zor înainte că-i o deșertăciune ca toate celelalte... N-o știi ?
+Băiatul făcu un gest cu mîna, încuviințând.
+— Și tu ce ai spus ?
+— Eu ? Ce pot să spun eu ? Am dăscălit-o, am dăscă- lit-o și iar am descălît-o. Dar mai degrabă aș fi vorbit la pereți, că pe ei poate îi induplecam. Ea o ține una și bună. Așa că am lăsat-o...
+— Ai lăsat-o ?!
+36
+
+
+![Illustration on page 039](3 Doiniș,Sanda - Loteria_ocr_figures/page-039.png)
+
+---
+
+<!-- PAGE 040 -->
+Băiatul deschise ochii mari : parcă nu-i venea să creadă. O privi pe maică-sa cu un fel de nedumerire copilărească, amestecată cu ciudă.
+
+— Ai lăsat-o ?! mai întrebă el o dată, ca și cum vorbele maică-si fuseseră rostite într-o altă limbă, străină, anevoie de priceput.
+
+— Ce-ai fi vrut să fac ? se revoltă maică-sa. Te uiți la mine ca și cum am vorbi întîia oară despre asta. Nu pot să fac nimic ! Nu pot să mă amestec ! Pot s-o sfătuiesc, pot să-i arăt ce-i bine și ce nu-i, pentru fetiță, dar de silit, n-o pot sili. Nici n-am dreptul. Vrei să huie satul că învățătoarea cea nouă îi depărtează pe copiii de la credința lor ? Măcar că și eu, și tu și toată lumea știm că nu despre asta e vorba. Dar ce pot să fac ? Dacă nu-i este ei milă să se despartă de copil, că-i mamă !... Vorba ceea : ce i-a intrat omului în cap, nu poți să-i scoți cu ciutura.
+
+Trecă tăcea. Stătea cu ochii ațintiți la maică-sa, cu gura strînsă, cu palmele desfăcute și proptite pe genunchi.
+
+— Îmi pare rău că te necăjesc... Maică-sa încercă să surîdă ca să alunge într-un fel tristețea de pe chipul băiatului. Uite — îi arată ea un caiet — știu că n-am voie să-ți spun pînă mîine în clasă, dar îți spun. I-am dat cinci Sfintuței. Foarte frumoasă lucrarea ei.
+
+Trecă nu se clinti. Abia după citiva vreme spuse cu glas atît de liniștit că maică-sa auzindu-l, simți un fel de greutate în coșul pieptului.
+
+— Poți să spui pînă mîine că n-ai ce să faci, că n-ai cum să te amesteci. Eu tot n-o să te cred. S-o reclami s-o bați, s-o arestezi, s-o iei pe Sfintuța de acolo și s-o
+
+37
+
+
+---
+
+<!-- PAGE 041 -->
+aduci la noi, sau să fugim cu ea în altă parte, la tata, sau ori unde. Cum poți să rabzi, cum poți ?
+— Vorbești prostii, Trică — spuse maica-sa, dar sub privirea băiatului își feri din nou obrazul într-o parte.
+Și vorbești și urit, pe deasupra...
+— ...Și dacă tu poți să rabzi, eu n-am să răbd, să știi ! Am să plec pe jos la raion, la București, la dumnezeu din cer și am să scriu la ziar, și lui tata pe șantier, și lui unchiu Costin, și la toată lumea. Și dacă se întâmplă asta, am să sparg toate geamurile la școală, și nu mai calc pe acolo, și praf am să fac toate cărțile și caietele...
+
+Ușa pocni scurt și violent, iar geamurile zornăiră prelung în urma băiatului.
+
+Învățătoarea strânse caietele, le rîndui pe pervazul ferestrei, oftă și porni spre bucătărie. ,,Ar trebui să fiu supărată — își spuse, aplecîndu-se să ațe focul — ar trebui să fiu supărata și să-l pedepsesc“. Dar cînd flăcările se învolburară, luminindu-i fața din plin, nu se afla acolo nici urmă de supărare, ci doar o mare și adîncă milniire.
+
+Trică învăță la școala din sat numai de un an. Se mutase o dată cu maica-sa care fusese transferată dintr-un sat din Oltenia — aproape un tirgușor — aici în nordul Moldovei, ca să fie mai aproape de șantierul unde lucra bărbatul său. Băiatului, la început, nu-i păruse nici bine nici rău. Se deprinsese cu viața asta. Se așezau într-un loc și maica-sa hotăra o dată pentru totdeauna : ,,Aici rămîinem“. Apoi taică-să pleca undeva, pe un alt șantier. Răbdau ce răbdau — pînă se sfirșea anul
+
+38
+
+
+---
+
+<!-- PAGE 042 -->
+şcolar, — şi sosea o scrisoare : ,,Vorbeşte la regiune şi vezi, vino mai aproape. Mi-e dor de voi...“ Şi o luau de la capăt : bagaje, tren, alt sat, altă şcoală. Se despărţea de colegi, îi părea rău, îi uita şi începea alt an, într-o clasă nouă, cu băncile pline de copii necunoscuţi, cu alte deprinderi, altă vorbă.
+
+La fel se întîmplase şi cînd sosiseră aici. Vreo câteva săptămîni după începutul şcolii nici nu-i băgă bine în seamă pe cei din clasă. Trică se întorsese tocmai din vacanţă de la taică-său, de pe șantier, și abia îşi mai aduna gîndurile de cite văzuse şi cite trăise. În fiecare zi născocea alte planuri de viitor, care bine înțeles, ducenu toate, ca razele unui cerc, pe șantierul acela. Într-o zi era inginer; într-alta şef bucătar la o cantină; într-alta betonist, în următoarea, conducea excavatorul. Nici în clasă nu era prea atent : în mintea lui se întîmplau aievea toate minunile pe care avea să le făurească mai tîrziu, alături de taică-său. Aşa că lecțiile nu-l îmbiau prea tare.
+
+Dar vremea trecuse şi amintirile începuseră să se întregheșue într-un colț mai tainic și mai depărtat al minții, și din ce în ce mai rar ieșeau de acolo. În locul lor se iviseră chipurile noilor colegi şi curînd — așa cum se mai întîmplase și în alte dăți — lui Trică i se părui că invată la școala asta, în clasa asta, de cînd e lumea, lume.
+
+Pe Sfintuţa o zărise de la început. Era şi greu de altfel să n-o vezi pe fetiţa asta înălțută, slăbuţă, cu umerii ușor aduşi. Cu mîinile subțiri și înguste își potrivea necontenit băsmăluța cenuşie, ca şi cum singura ei grijă era să ascundă şi ce bruma se vedea din obrazul mereu îmbrobodit. Stătea singură în ultima bancă, în fundul
+
+39
+
+
+---
+
+<!-- PAGE 043 -->
+clasei, și aproape niciodată nu i se auzea gura. Venea tăcută, pleca tăcută. De jucat, nu se juca niciodată. În recreații se strecura ultima în curte. Se așeza pe vine, cu spatele răzimat de gard și de acolo privea liniștită la zbenguiala copiilor, până suna de intrare.
+
+La început lui Trică i se părui că e persecutată pentru ceva anume. Așa că într-o zi, îl întrebasse — cam repezit, cum îi era firea — pe unul din băieți :
+
+
+![Illustration on page 043](3 Doiniș,Sanda - Loteria_ocr_figures/page-043.png)
+
+---
+
+<!-- PAGE 044 -->
+— Ce-aveți cu ea ?
+— Cu cine? se mirase acela.
+Trică i-o arătase pe Sfintuța cu privirea, încruntîndu-se ca și cum aștepta o explicație.
+— Cu Sfintuța? se dumerise celălalt. Păi ce să avem cu ea? N-avem nimic.
+Trică îl reținuse de mîneca haipei. I se părea că ne-păsarea celuiuilalt ascunde un fel de bătaie de joc pentru întrebarea lui.
+— Atunci de ce nu vă jucați cu ea?
+— Cum o să ne jucăm? se mirase celălalt cu sin-ceritate, de parcă cineva l-ar fi întrebat de ce nu se joacă cu planeta Marte. Păi ea nu vrea. Ea doar nu-i ca noi...
+Și promise în goană, să ajungă stolul de copii care se zbenguiau în uliță.
+Trică rămăsese în mijlocul curții nedumerit. Nu știa încă, dacă celălalt vorbise în batjocură sau serios. Așa că vrînd să afle de îndată adevărul, se apropiase de gard și întrebasse de-a dreptul :
+— Tu de ce nu te joci ?
+Fetița îl privise la fel de mirată ca și celălalt, fără să-i răspundă.
+— Spune, n-auzi ! stăruise Trică, proptindu-se bătăios în fața ei.
+— Ce să spun ? Nu mă joc și atît.
+Era ceva în glasul și în ochii ei, care-l făcuse pe Trică să se simtă dintr-o dată sfios. Rămăsese acolo, lîngă ulucă, proptit pe picioarele groase și puternice, ca și cum nu mai știa încotro să le miște ca să plece.
+Stind așa și privind-o încurcat, băgă de seamă că fata purta peste pieptarul încheiat pînă sub bărbie o cruce
+41
+
+
+---
+
+<!-- PAGE 045 -->
+mică, dintr-un lemn alb, aproape strălucitor, încrustat cu tot felul de semne și flori negre. Era atât de frumoasă, că se lăsă și el pe streașina de jos a gardului, s-o privea mai de aproape.
+
+— De unde o ai ?
+— Crucea? Mi-a dat-o maica.
+— Maică-ta ?
+— Maica Sofronia, nu mama! Îl lămuri fetița și zâmbi. Un zîmbet mic, brusc, care se stinse îmântie să-i fi mișcat obrazul și care-l făcu pe Trică să se simtă și mai stânjenit. Întinse mâna să apuce șnurul, să privească mai bine crucea, dar fata se trasese înapoi speriată :
+— Ce faci? Și ca-ntr-o fulgerare de spaimă, se închină iute peste pieptar. Ce faci? Nu pune mâna...
+— Nu ți-o iau! spuse Trică. Am vrut doar să mă uit.
+— Doamne ferește! se mai închină o dată fetița și se ridică. Să n-o atingi, că-i păcat. E sfintită... E din racla sfinției Paraschiva.
+Și se depărta în grabă.
+
+Lui Trică i se păru dintr-o dată că-și aude inima, așa cum i se întâmpla ori de câte ori se speria de ceva. Dar acum de ce să se fi speriat? De fetița asta? Haida de! Cum să te sperii de o fetiță? Iși spuse el și își aminti dintr-o dată de zîmbetul acela mic și brusc, care părea ciudat pe fața nemiscată a fetiței. Rîse singur de spierietura asta caraghioasă. Mai târziu, în clasă, îi veni din nou în minte spaima lui nelămuită și iarăși zîmbi, ca de o întâmplare poznașă. Dar la amiază, în drum spre casă, se pomeni spunându-i maică-si :
+— Dacă te rog frumos, mă lasi să mă mut mai în fundul clasei ?
+
+42
+
+
+---
+
+<!-- PAGE 046 -->
+— De ce ?
+— Așa ! Am găsit eu o bancă mai lustruită.
+— Mută-te dacă vrei — încuviință maica-sa. Mă și gîndeam azi că poate nu-i bine să stai în banca a treia...
+să nu zică ceilalți că stai în față, pentru că ești băiatul învățătoarei...
+
+Și încă de a doua zi, Trică își luă lucrurile și se mută în banca din fund, în care stătea Sfîntuța. Fetița îi făcu loc tăcută, apoi își văzu de treburile ei. Își linie caitele, își lipi niște etichete, tăiate din hârtie albă, pe cărți și fu foarte atentă la lecții. Ai fi zis că lecțiile erau singurele lucruri care o depărtau de la gândurile ei tai-nice și nelămurite.
+
+Cînd sună de ieșire, Trică rămase într-adins mai în urmă, socotind că poate vor pleca împreună. Dar Sfîntuța își strînse lucrurile, îi spuse bună ziua și ieși din clasă, fără să-l aștepte. Trică se luă după ca și o ajunsese în poartă.
+— Stai departe ?
+— Acolo — îi arată Sfîntuța cu mîna un loc nedeslușit peste livezi, spre capul satului.
+— Și eu — minti Trică, calculând repede în minte că drumul arătat era de două ori mai lung decît cel obișnuit, spre casă. Și ca și cum era de la sine înteles că vor merge împreună, își potrivi pasul după cel mărunt al Sfîntuței. O vreme o iscodi cu privirea pe furiș, dar cum nu-i era în fire nici să tacă, nici să gîndească ceva pe ascuns, se pomeni întrebând-o de-a dreptul :
+— Tot nu vrei să-mi spui de ce nu te joci ?
+Sfîntuța se opri o clipă descumpănita. Păru că se gîndește bine asupra răspunsului și după vechiul ei obicei își trase și-și potrivi de câteva ori basmaua sub bârbie.
+
+43
+
+
+---
+
+<!-- PAGE 047 -->
+— Pe mine toți copiii mă lasă în pace — spuse ea  
+în cele din urmă cu seriozitate și cu blândețe. Să mă  
+lași și tu.  
+
+— Și dacă nu te las? se înerșună pe dată Trică,  
+deoarece răspunsul fetei i se păru ca un fel de cutezătoare infruntare.  
+
+Dar Sfântuța nu-l mai auzi. Se depărta grăbită de-a lungul gardului, de parcă din spate o urmărea vreo primejdie de care trebuia numaidecît să se ferească.  
+
+Trică fu cit p-aci să strige după ea, să-i spună o vorbă urită, să-l țină minte, să nu mai facă pe îngîmfata. Dar iarăși, privind la silueta subțirică și la pasul ei, care-i amintea de mersul unei orătăнии speriate, il cuprinse sfiala aceea nelămurită, pe care o simțise și în ajun și tăcu. Se întoarse să o ia pe alt drum spre casă și dădu nas în nas cu Alecu, băiatul pe care îl întrebasse cu o zi înainte despre Sfântuța.  
+
+— Nu mai vorbi cu ea — îl sfătuși acesta fără altă explicație.  
+
+Trică simți că-l înecă un fel de ciudă neputincioasă, cum i se întâmpla întotdeauna când nu pricepea un lucru.  
+
+— De ce? Ce, ea nu e copil ca noi?  
+— Nu e! hotărî Alecu fără să șovăie. Și-i faci și un rău dacă o îndemni la vorbă sau la joacă.  
+— Rău! Și Eu?  
+— Bineînțeles că și tu. Dacă află că n-o lași în pace, maică-sa o pune să facă mătănia toată noaptea. Și a doua zi pică de somn în clasă. Și doamne ferește, mai ia și o notă proastă.  
+
+44
+
+
+![Illustration on page 047](3 Doiniș,Sanda - Loteria_ocr_figures/page-047.png)
+
+---
+
+<!-- PAGE 048 -->
+Trică se rezemă de gard, buimăcit.
+— Mătănii? Ce fel de mătănii? Și de ce?
+— Păi, așa sint ei, ce vrei ! dădu celălalt din umeri cu oarecare nepăsare. Noi ne-am deprins cu asta. La început rîdeam de Sfîntuța, o batjocoream. Îi aduceam colaci de la biserică și colivă de la pomeni, și i le în-șiram pe bancă cu luminări aprinse. Dar mai la urmă ni s-a făcut milă de ea și am lăsat-o în plata domnului, că și așa e vai de zilele ei.
+
+Și în ziua aceea, în drum spre casă, oprindu-se la fiecare pas să se minuneze sau să ceară deslușiri, Trică află de la Alecu o poveste pe care satul o știa de atita vreme c-aproape o uitase. Iar Alecu o spunea, așa cum o înțelesese mintea lui de copil :
+— Ea stă cu maică-sa și cu bunică-sa. Și să nu crezi că o cheamă Sfântuța. Are alt nume de la botez. L-am știut și eu, de la școală — n-ai auzit, uneori o strigă doamna pe numele ei adevărat — da’ mereu îl uit, că toată lumea îi spune Sfântuța A avut și tată, să nu crezi că n-a avut. Mama zice că era un om de treabă. Ei pe vremea aceea erau săraci lipiți — mai săraci ca acum — Și vai de capul lor cum au dus-o. Acum, el, cu sâr- căcia se mai împăca, da’ mai greu era cu ele. Cu soacră-sa și cu femeia.
+
+Aici, la mirarea zugrăvită pe chipul lui Trică, Alecu se grăbise să-i explice : ,,Păi, ele, toată ziua cu crucea-n sîn, toată ziua la praznice și la hramuri, la minăstiri, că p-aii prin jur, ai auzit și tu, sint o mulțime ; o să mergem și noi la primăvară cu școala să le vizităm. Sint frumoase, măi, să stai cu gura căscată și să le tot privești. Eu am fost astă-vară cu ai mei și drept să spun, mă uitam ca la poze.“
+
+45
+
+
+---
+
+<!-- PAGE 049 -->
+— Spune de Sfintuța — îl întrerupse Trică.
+— Păi, cum îți spuneam, de ele... adică de maica-sa și de bunica-sa, casa vraiște și ele la hramuri. Și cînd se-norocau, vai de zilele lui — adică taică-său, cum ți-am spus. Nu fă aia că-i păcat, nu te atinge de aia că-i spurcat, nu bea că o să te chinui pe lumea ailaltă. Și toarnă-i cruci și mătănii și tot cu frica de necuratul în sîn. Pînă-ntr-o zi, i s-a făcut lehamite omului și i-a luat lumea-n cap. Și-a băut mintile o noapte întreagă, la unu’ nea Sterică, de ținea crismă în capul satului, și dimineța dus a fost, că nu l-a mai văzut nimeni niciodată, și nici de nume nu i s-a mai auzit. Eu nu eram pe-atunci, da’ spune mama. Sfintuța s-a născut o lună după ce a plecat taică-său. Era o uscăciune în anul acela, zice mama, că nu s-a făcut bob de griu, nici măcar o lecuță de pai de nutreț și mureau vitele pe capete și se îmbolnăveau oamenii că le cãdea greu de atîta carne. Și se zvonea și de război, sau chiar era război, nu știu, că-ți spun, eu nu eram pe atunci. La ei în casă, la Sfintuța nu mai aveau nici după ce bea apă, că de, omul le plecase, iar ele, tot de ce-ți spusei se țineau, așa că cine era să le muncească ? Și se mai abătuse și seceta peste sat. Ele ziceau că oamenii-s vinovatî, că-i satul lovit de blestem, că-s oamenii păcătoși. Și umblau toată ziulica s-aducă moaștele unei sfinte care dezleagă ploile. Acuma, să vezi, știu și eu de la bunica de o sfintă care ține baierile ploii și numai cînd îți faci paparude și caloian le desface.
+— Lasă prostiile ! Spune mai departe — îl grăbise Trică.
+— Nu rîde, că asta așa-i ! Dacă mi-a spus bunica !
+Da’ în anul acela, pesemne că n-a vrut sfinta : n-a
+
+46
+
+
+![Illustration on page 049](3 Doiniș,Sanda - Loteria_ocr_figures/page-049.png)
+
+---
+
+<!-- PAGE 050 -->
+plouat nici de leac pînă la sfântul Iliie. Așa că mama Sfintuței a făcut legământ cînd au botezat-o că dacă s-o desface cerul, își dă fată la mînăstire, să-i ierte dumnezeu de păcate și ei, și mai cu seamă lui bărbatu-său, pe unde o fi. Și a dat dumnezeu că după sfântul Iliie a plouat și maică-sa a zis că ăsta-i semn din cer, că-i bine primit copilul. Acuma, tot bunica zice — da’ tu să nu umpli satul, că aude Sfintuța și-i păcat să-i strici inima! că aia nici n-a fost plouie, doar așa o stropitură, cit să răcorească pământul și atît. Nici pe o măsca n-ajungea, dar-mite pe dita cîmpul. Roade nu s-au făcut, că după aia pînă-n toamnă, n-a mai plouat de fel. Dar ele — maică-sa și bunică-sa — cum ți-am spus, nu și nu, că a fost semn de sus pentru fetiță, că-i legământ și că numai așa or să mîntuie copilul care-i plin de păcatele lui taică-său.
+
+— De cînd sînt, n-am auzit așa ceva! se îngrozi Trică, aproape nevenindu-i să creadă.
+
+— Uite că acuma ai auzit, că ți-am spus eu! De cînd era de-o schioapă, au plimbat-o pe la mînăstiri și biserici, și tot în posturi și mătăni o țin de atunci. O dată, cînd eram într-a-ntâia, să vezi ce s-a întâmplat în postul mare. A adus Fane... — ți ști pe Fane, ala din banca a doua de lîngă geam — cum ți spun, a adus Fane la școală niște copănașe de găină, fripte. Ai lui Fane nu țin post. I-am dat și Sfintuței să mănânce, că pe vremea aceea nu prea ne duminisem ce și cum, dar de ținut, țineam la ea. Ca s-o facem să guste, i-am spus că e carne cu moliftă și nu mai e de dulce. Aiu-rea! Că moliftă se face la altceva! Și ea a crezut și a mîncat. Ce-a pățit, vai de zilele ei! Au dus-o la popă să-i citească pentru spurcăciune și trei zile numai în
+
+47
+
+
+---
+
+<!-- PAGE 051 -->
+genunchi a stat, cica să se canonească, vezi doamne că s-a lipit păcatul de ea. Auzi mă... trei zile pentru un copănăș. Păi eu să fi fost, îmi luam cîmpii, fugeam de-acasă. Dacă am văzut așa, am lăsat-o în ale ei. Acuma scapă, sâraca — oftase Alec. Fie vorba între noi, nici de scăparea asta n-ai sări în sus de bucurie.
+— Cum adică „scapă”? întrebasse Trică încă buimăcit de tot ce auzise.
+— Păi nu-ți spusei ? O duce la minăstire anul ăsta, după ce mîntuie școala. A vorbit acolo cu o maică și o s-o ia în ascultare înainte de împlineste cincisprezece ani.
+— Și voi ce spuneți ?
+— Ce să spunem ? Păcat de ea, că-i bună la învățătură, asta spunem. Da' cine știe, poate acolo s-o alege ceva de capul ei, că aici dacă mai stă, alea o scot nebună cu toate scor nelile lor.
+Că vorbele lui Alec nu erau vorbe în vînt, Trică își dădu seama chiar în următoarele câteva zile. Îi ceruse lui taică-său să-i trimită niște cărți, că viselile lui cu șantierul acela, tot mai ieșeau citeodată din tainița aceea unde se dăduseră pentru o vreme la fund. Primise un teanc întreg cu cărți de-a valma, așa cum i le trimisese taică-său, care, pesemne n-avusesese vrem să i le aleagă cu prea multă grijă : broșuri despre hidrocentrale, povești, cursuri despre electricitate, cu desene încurcate și greu de deslușit, vreo citeva cărți de școală rătăcite cine știe cum, și cărți de aventuri. De bucurios ce era și nerăbdător să le citească, Trică le lua pe rînd în ghiozdan și-și mai furișa ochii pe ele și în timpul lectiilor. Era una, mai cu seamă, care-i plăcea grozav : o carte în care era vorba despre niște călătorii fan-
+48
+
+
+---
+
+<!-- PAGE 052 -->
+tastice pe o planetă necunoscută, cu o rachetă care străbate spațiul intersideral — (cât mai căutase și cuvântul ăsta în dicționar; și cei de la editură parcă nu știu că-i carte pentru copii, zău așa !) mai iute decît cel mai iute gînd.
+
+Luase și cartea asta la școală și-ntr-o recreație i-o arătase Sfintuței, care acum, parcă se mai îmblinzise o leacă și vorbea cu el mai mult. Sfintuța o sucișe și o răsucise, privind coperta cu multă curiozitate.
+
+— Ce scrie ? întrebase ea cu o oarecare sfială.
+— Despre niște călătorii. E foarte frumoasă, vrei s-o citești ?
+— Nu, nu vreau, se apărase ea, dar cartea n-o lăsase din mînă.
+— Ia-o ! stăruiise Trică. Mai am și altele, dacă vrei. Hai, ia-o ! o încurajase el, văzând-o că șovăie.
+— Bine !
+Fata se lăsase învinsă de curiozitate și băgase cartea în tășcuță.
+
+A doua zi venise la școală plinsă, nedormită, cu un fel de spaimă care-i întepenise pe obraz și pe care Trică n-avea s-o uite multă vreme. Scoase din tășcuță cartea, cu fereală și i-o întinsese.
+
+— Ține-o, și să nu-mi mai dai din astea ! Asta-i cartea lui... scuipase și-si făcuse repede o cruce peste pieptar, așa că Trică se dumerise că-i vorba de necunostă.
+
+Amintindu-și de vorbele lui Arecu îi trecuse prin minte o bănuielă.
+
+— A văzut-o maica-ta ? întrebase el.
+— Nu, se scuturase fetița îngrozită. Nici mama, nici bunica. Da-i carte cu păcat. Cică s-au dus niște oameni,
+
+4
+49
+
+
+---
+
+<!-- PAGE 053 -->
+doamne ferește, printre stele, cu un fel de mașină. Dacă am citit-o, toată noaptea m-a muncit...
+— Ce tot spui ? se îngrijorase Trică. Noaptea ? Cine ? Sfintuța iar închinase iute pieptarul, iar spaima de pe obraz i se adîncise și mai tare în trăsături, așa că Trică întelege că tot de necuratul e vorba.
+— Toată noaptea m-a muncit. Se făcea că mă ținea de mînă și mă plimba și pe mine printre stele cu oamenii ăia. Da’ am văzut pe urmă că nu erau stele. Ereau niște focuri și-n fiecare ardea un om și se văita : „păcatosul de mine ! Păcatosul de mine !” Și a vrut să mă arunce și pe mine intr-un foc din ăsta, dar eu m-am zbătut, m-am zbătut și m-am trezit lac de sudoare. Mi s-a făcut frică, frică de tot și pînă dimineață am stat trează și am plîns...
+Și acum, ochii începți în lacrimi, parcă mai vedea aievea focurile acela și oamenii canonindu-se și văietându-se în vâltoarea lor. Buzele îi tremurau și umerii aveau un zvîcnet ca un suspin care n-ajungea să se spargă în piept. Fără să vrea, Trică se cutremură. Luă mâna Sfintuței și o strânse tare, tare :
+— Nu-ți mai dau, șopti el. Nu-ți fie frică, nu-ți mai dau cărți din astea.
+Dar îi mai dădu, pentru că din ziua aceea, aproape fără voia lui, nu se mai dezlipe de fetița asta chinuită și sperioasă. Puținul cit erau împreună — mama fetei numai pentru școală îi îngăduia să iasă din casă — se străduia să-i abată gîndurile de la spaimile care o chinuiau. O învăța să deseneze, să coloreze hărți, îi aducea cărți de povești alese cu grija (deși mintea lui ne-deprinsă cu astfel de gînduri refuza să înțeleagă ce o s-o însământare și ce nu), îi tăia păpușele de lemn la...
+50
+
+
+---
+
+<!-- PAGE 054 -->
+traforaj, se sfătuiau adesea despre lecții. Cînd o vedea tăcută, învîrțind în mînă cartea de rugăciuni, tăcea și el, dar în gând iscodea fel de fel de planuri. Vorbișe și cu maică-sa, învățătoarea, care la început îl luase în rîs.
+
+— Fugi de-aici ! Ce prostii sînt astea ? Ți-a spus ție așa ?...
+
+— Tu n-o cunoști ! se revoltase Trică. Dacă spune ea, așa-i. Tot ce spune ea e serios și adevărat. Nici nu știi ce fetiță e.
+
+— Lasă prostile, Trică ! se încruntase maică-sa. Cum o să o ducă la mînăstire ? Las-că vorbesc eu cu mama Sfîntuței. Îl iau pe instructor și mergem la ea într-o zi.
+
+Trică prinsese nădejde, dar spre mirarea lui, maică-sa se ferise după aceea să mai pomenească despre fetiță. Băiatul știa că de dus, învățătoarea se dusesese la mama Sfîntuței și nu o dată, ci de mai multe ori. Așa că nu întelegea de ce tace. Pierzîndu-și răbdarea, o întrebăse într-o zi :
+
+— Ai fost ?
+
+— Da.
+
+— Și ?
+
+— Nu te mai gîndi la asta. O să fie bine.
+
+— Da ?! se bucurase Trică. Dar de jucat o lasă să se joace ?
+
+— O să vină pe aici citeodată. I-am spus că trebuie să-i arăt la lecții, altfel n-o trec clasa, că nu prea știe.
+
+De bucurie, Trică sări la maică-sa și o îmbrățișă :
+
+— Mamă dragă, mamă dragă, o legănă el cu brațele, ca pe vremea cînd era un băiat mic. Nici nu știi ce bine-mi pare. E o fetiță așa de bună și grozav aș vrea să fie ca toți copiii. Acum e blîndă și sperioasă ca un iepuraș. Zău, mamă, ca un iepuraș. Și tot ce fac, se
+
+4*   51
+
+
+---
+
+<!-- PAGE 055 -->
+miră și-i place, parcă a crescut în pădure. Să știi că o iubesesc foarte mult. O să fiu mereu prieten cu ea și-o s-o apăr că prea se sperie între-una. Din satul ăsta nu ne mai mutăm niciodată, nu-i așa, mamă ?
+
+— Te alinti, Trică, și doar ești băiat mare, oftase maica-sa, și-i deznodase brațele de după gît. Se ferise însă să-l privească în ochi. O năpădise parcă un fel de grija ciudată.
+
+Iar Trică, de mulțumit ce era, nu luase seamă prea atent la vorbele ei. Dar seara, în pat, gândindu-se tot la Sfintuța, își aminti: ,,De ce-o fi spus mama că Sfintuța e slabă la învățătură și trebuie să-i arate la lecții? Nu-i adevărat. E printre cei mai buni din clasă! Oare de ce o fi spus mama așa? Ea doar nu minte niciodată, ce-o fi găsit-o să mintă acum?
+
+Și adormi tîrziu, fără să se fi dumerit.
+
+Dar cu explicație sau fără, fu așa cum spusesese învățătoarea: de cum se desprimăvăra, Sfintuța începu să vină pe la ei. În primele zile intra și întreba sfioasă: ,,Doamnă, vă rog, îmi arătați la lecții?!“ Spre uimirea lui Trică însă, învățătoarea avea întotdeauna ceva de făcut: ba de pregătit planul de lecții pe săptămîna viitoare, ba de cărpit rufe, ba de făcut mîncare. Așa că îi spunea mai totdeauna: ,,Azi n-am timp. Da' mai stai pe la noi. Lui Trică îi e urît singur. Vezi, Trică, tu i-s prăvărește-ți lecțiile mai repede, și pînă atunci dă-i Sfintuței o carte“.
+
+De joacă, învățătoarea nu pomenea niciodată, deși pe nesimtite, copiii începură să se joace împreună. Era o magazie în curte și intr-un colț curățit și aranjat într-adins, Trică făcuse o ,,insulă“. Înconjurase o suprafață în cerc cu pietre — pentru Trică nici o insulă nu
+
+52
+
+
+---
+
+<!-- PAGE 056 -->
+putea fi altfel decât rotundă — și de-acolo, de pe insulă, pleca cu Sfîntuța în toate călătoriile despre care citise prin cărți. Într-o zi, Trică fusese Guliver și toți puii de găină proaspăt scoși fuseseră mobilizați pe „insulă” ca să joace rolul piticilor. Altă dată, o suise fără vorbă multă într-o corabie — pe care pasămite mai erau doi copii — și porniseră peste mări să-l caute pe căpitanul Grant. Vreo câteva după-amiază în șir locuiseră pe insulă, „pierduți” ca Robinson Crusoe.
+
+De la masa unde lucra, învățătoarea își întorcea uneori privirea înspre geam și se uită la ei. Sfîntuța stătea aciută intr-un colț al „insulei” și asculta, asculta cu seriozitate și interes, toate aceste întâmplări nemaiopomente, pe care Trică i le dezvăluia ca pe niște taine, numai de el știute. Ciudat însă, că văzîndu-i, în loc să se însenineze, învățătoarea se intrista și cădea pe gânduri. Și poate că tristețea i-ar fi fost și mai mare, dacă ar fi locuit și ea pe „insulă” ceea năzdrăvană din magazine și i-ar fi auzit pe copii :
+
+— Tu ai citit cartea asta despre care povestesti ? Întrebă Sfîntuța. De adevărat ?
+
+— Sigur că de adevărat. Și asta, și altele. Am o grămadă de cărți. Tu n-ai de loc ?
+
+— Ba am. Cărțile de școală și cele de rugăciuni. Au poze frumoase, cărțile mele de rugăciuni ! Numai că sunt greu de învățat pe din afară.
+
+— Trebuie să le înveți pe din afară ? se mînuna Trică.
+
+— Trebuie ! Știu o mulțime.
+
+Și ca să-l încredințeze că-i așa, începea să i le spună pe de rost. Lui Trică i se păreau tare pliticoase și uneori își pierdea răbdarea.
+
+— Nu înțeleg nimic. Și nici nu-mi plac...
+
+53
+
+
+---
+
+<!-- PAGE 057 -->
+— Să nu mai spui așa, că-i păcat! îl mustra Sfintuța cu blîndețe și iarăși îi fulgera prin ochi începutul acela de spaimă care-l făcea pe Trică să se simtă sfios și neîndemânat. Schimba vorba, nădăjduind că o s-o linștească și într-adevăr, curând ochii fetiței deveneau iarăși senini și strălucitori, ascultându-l.
+
+În vremea din urmă parcă se mai domolise spaima asta. Poate pentru că Sfintuța, furată de povestirile și jocurile băiatului avea mai puțin răgaz să se gindească la ale ei. Zâmbea mai des și zîmbetul îi stăria mai multă vreme pe față. Ai fi zis că se deprinde cu copilăria încetul cu încetul, cum se deprind alții cu cine știe ce exercițiu anevios. Dar uneori, diminețile tot mai venea la școală plînsă, nedormită, cu umbra aceea de groază cuibărită în priviri.
+
+— Mă muncește noaptea, pentru că sînt păcătoasă. Păcătoasă ca tata.
+
+— O fi bolnavă, s-o ducem la un doctor, se rugase Trică de maica sa. Altfel cum ar spune asemenea prostii?... Nu putem s-o lăsăm așa, mamă, se chinuie... O să se prăpădească.
+
+— Asta nu-i boală pentru doctori, oftase învățătoarea. Trăiește cu spaima în sân toată ziua, și atunci, noaptea i se pare... nu știu cum să-ți explic asta... e greu... ai să înveți tu mai tîrziu. Dar nu-i bolnavă. Fii liniștit.
+
+Pe la jumătatea lui aprilie, Trică primise de la taicăsău o scrisoare. ,,Măi băiatule, scria el, isprăvește iute școala și vino încase că mi-e dor de voi. Am început lucrarea la perforarea tunelului și sunt sigur că o să-ți placă. Și pe urmă vine vara, intrăm în sezonul cel mai aglomerat și ce mă fac fără ajutorul tău ?“
+
+54
+
+
+---
+
+<!-- PAGE 058 -->
+De fericire, Trică făcuse zece tumbe, îi stricasese mai- că-si cocul, răsturnase un castron de compot și cînd sosi Sfintuța după amiază, ca de obicei, îi sări de gît, învîr- tind-o prin curte ca pe un titirez. Apoi se refugiară pe „insulă” și Trică îi citi scrisoarea de la un capăt la altul și pe urmă încă o dată și încă o dată... Și cînd sfîrși cu asta, începu să-i povestească Sfintuței despre șantier și despre visurile lui. Abia se oprea să răsufle și fetița amuțișe cu totul ascultându-l. Pe măsură ce vor-bea, Trică se înflăcăra, amesteca adevărul adevărat cu ceea ce citise, auzise sau visă uneori.
+
+— Măi, ce grozăvie e acolo ! Or să străpungă un munte mai mare decît orice alt munte. Tata l-a ales muntelile ăsta. Și prin locul ăla, prin inima muntelui, o să treacă apa care merge la turbine. (Aici o pauză, pentru că Trică nu știa foarte exact dacă apa o să meargă la turbine, nici unde o să se ducă de fapt). Și cînd o să ajungă apa în partea cealaltă (aici altă pauză, „partea cealaltă” reprezentând un loc anume, dar nu foarte precis așezat în mintea lui Trică), or să fie acolo (desigur în „partea cealaltă”) mulți ziar iști și fotografi și o să fiu și eu acolo cu tata. Și în ziar, pe poza tatei o să apar și eu, iar dedesubt o să scrie : „Tovarășul Dima, cu fiul său, pe care l-a chemat în ajutor, pentru sezonul lucrărilor aglomerate”. Și să-ți mai spun ceva. Acolo e o mulțime de lemn — îți închipui și tu de la toate lucrările alea cît lemn rămâne — așa că o să-mi fac o insulă ca asta, dar mai frumoasă. Și dacă vreau, îl rog pe tata să-mi construiască un canal de scurgere și pe urmă un altul pe malurile insulei și o să am o insulă de adevărat, inconjuratoră cu apă. Sau, mai bine nu. Mai bine îmi fac o insulă în mijlocul mării. Știi că
+
+55
+
+
+---
+
+<!-- PAGE 059 -->
+ei, cu mâna lor, fac și o mare acolo. O mare... Bine, ei îi spun lac, lac de acumulare, dar nici vorbă de așa ceva, că abia poti să-l cuprinzi cu ochii... O mare mai frumoasă decât cele adevărate, pentru că n-au să fie nici furtuni, nici rechini... Îți închipui că dacă o fac ei cu mâna lor, marea asta, doar nu sunt proști să facă și rechiniși furtunile. Cred că într-o lună, două, o termină, așa că atunci când începe vacanța, marea o să fie gata, numai bună de mers cu barca pe ea.
+— Eu n-am fost niciodată cu barca, șopti fetița.
+— Ce dacă! O să mergi cu mine. Te luăm și petine în vacanță pe șantier la tata. Habar n-ai ce bine e acolo! Nici nu știi la ce să te uiji mai întâi. Și dacă vrei să înveți o meserie, te zăpăcești, c-ai vrea să le înveți pe toate. Uite, eu care am mai fost pe-acolo și le știi foarte bine, tot nu m-am hotărît ce o să fiu când o să fiu mare. Dar oricum, tot hidrocentrale o să construiasc. Tata zice că pînă atunci o să le facă el pe toate. Dar eu îți spun, dacă pînă m-oi face eu mare isprăvese tata toate hidrocentralele, îmi fac o rachetă și plec în altă planetă, unde sunt ape curgătoare. Și am să trîntesc acolo niște hidrocentrale de să se minuneze un univers întreg.
+Se opri o clipă ca să răsufle și abia atunci băgă de seamă că fetița îl privea cu nețărmurită uimire și în-cintare. Băsmăluța îi lunecase pe creștet și câteva șuvițe cîrlionțate căzuseră incilcindu-se grațios pe fruntea întâlți și bombată, făcînd ca ochii să pară mai mari și mai întunecați.
+— Uite, tu ai părul creș! se minunase Trică copilă-rește. Ia să văd, ia să văd!
+56
+
+
+![Illustration on page 059](3 Doiniș,Sanda - Loteria_ocr_figures/page-059.png)
+
+---
+
+<!-- PAGE 060 -->
+Și-i trăsese băsmăluța cu totul. Fetița rîse din toată inima, scuturind capul mai mult a veselie decît a împotrivire. Scăpate din strînsoare, inelele părului se risipiră lucioase și moi în jurul obrajilor și lui Trică i se păru că niciodată, niciodată în toată viața lui, nu văzuse o fetiță mai frumoasă.
+
+— Pe șantier, în vacanță, nu te las cu băsmăluța, nu te las, strigă el și rîse scuturîndu-i în joacă umerii slăbuți. O să vezi tu că nu te las.
+
+Și fu ca și cum vorbele acestea rupseră vraja. Trică simții asta din mișcarea aceea zvîcnită, cu care umerii Sfintuței se strînseră împingîndu-i trupul puțin înainte. Fetița își adună părul cu palmele peste tîmple, îl strînge cu mișcări liniștite sub băsmăluța cenușic și nu răspune nimbic.
+
+— De ce taci? o mustre Trică cu blîndețe. Nu vrei să mergi în vacanță pe șantier? Spune, nu vrei?
+
+— Eu, în vacanță, mă duc... acolo.
+
+— La mînăstire? Va să zici tot te duci? Păi, mama a zis că...
+
+— Cum să nu mă duc? se sperie Sfintuța. Mama a făcut legământ și dacă-l calc, o să fiu blestemată toată viața. Și eu și ai mei. Trebuie să mă duc.
+
+Dintr-o dată Trică înțelege: și vorbele în doi peri ale maică-si și tristețea aceea ciudată cu care uneori învățătoarea o privea pe Sfintuța și grija ei de a ocoli discuțiile cu Trică. Înțeles e și i se strînse inima de durere.
+
+— De ce să te duci? stărui el, doar tu nu vrei.
+
+— Ba vreau, spuse fetița. Și cu gestul acela de spaimă pe care Trică îl știa destul de bine, își închise iute pieptarul. Să nu mai spui așa.
+
+57
+
+
+---
+
+<!-- PAGE 061 -->
+— Ba nu vrei, nu vrei! Ce să faci acolo? Să băți mătănii? Să-ți fie la fel de frică de necuratul cum îți e și aici? Să nu dormi noptile de atâtea vise cite ai tu? Să trăiești o viață întreagă așa? Ce fel de viață e aceea?
+
+— Așa trebuie. Sfintuța stătea nemăsurată, doar mâinile propnite cu palmele deschise pe genunchi trezeau ușor, parcă stăteau s-apuce ceva. Am să trăiesc ca maica Sofronia. Ea are șaisprezece de ani și-i acolo de cînd avea cincisprezece. La ea am să fiu în ascultare. Nici nu știi ce bună e. E așa... — obrázul fetiței se luminează — ca o sfintă, ca o sfintă adevărată. Pe mine mă iubește. Odată i-a spus mamei cînd mă certa: „Las-o, nu-i băga în cap de necuratul, n-o speria, lui Dumnezeu nu-i place să împământ un suflet de copil“. Așa a zis. Cum a trăit ea, o să trăiesc și eu. Și degaeba spui tu că o să-mi fie frică și acolo de necuratul. Nu-i adevărat. Acolo n-o să mă mai tem de nimic. Noaptea n-o să mă mai muncească păcatul cel rău, că nu stă el în preajma maicii...
+
+Trică tăcea cu ochii în pămînt.
+
+— Dacă ai să vrei, urmă fetița, la toamnă cînd te întorci din vacanță, poți să vii o dată. Nu-i mult pînă acolo. Șaptesprezece kilometri, iar drumul e numai prin pădure, pe la răcoare.
+
+În seara aceea, după plecarea Sfintuței, Trică intrase în casă cu ochii fulgerînd de mînie.
+
+— M-ai mintit, îi spusese maica-si. Sfintuța tot se duce.
+
+— Știi, se întristase învățătoarea.
+
+— Știi? Și nu faci nimic? Nimic, nimic?
+
+58
+
+
+---
+
+<!-- PAGE 062 -->
+Învățătoarea ridicase umeriia a neputință și intr-un tîrziu, în timp ce îi punea mîncarea în farfurie, spuse : — Am să mai vorbesc o dată cu maică-sa.
+
+Cu astfel de întimplări trecuse primăvara ceea. Ziua în care Trică se dusese s-o cheome pe Sfîntuța la pregătirea serbării, apoi se certase cu maică-sa și plecase amenintind și trîntind ușile, era o sîmbătă, pe la sfirşitul lui iunie, o săptămână înaintea examenelor. Băiatul se întorsesese târziu noaptea, acasă. La întrebarea maică-si : ,,Unde-ai fost ?" răspunsese scurt : ,,Cu băieții !'' și se culcase. Învățătoarea știa că Trică se împrietenise cu câtiva din noii lui colegi, cu care în după amiezile cînd Sfîntuța nu venea pe la ei, pusesese la cale inființarea unui cerc al ,,constructorilor'', așa că se liniștise.
+
+Săptămâna următoare, Sfintuța veni mai rar și pe apucate : învăța pentru examene. Trică de asemenea învăța, iar când lăsa cartea din mînă o zbughea îndată de-acasă. Unde ? era greu de spus. Învățătoarea îl văzu de câteva ori ținând sfat în fundul curții cu Alecu și cu încă vreo doi din băieții din clasă. De spus însă, băiatul nu-i spunea nimic și cum era prinsă cu o mie de treburi, ca-n preajma examenelor, îl cam lăsa de capul lui. Numai o dată îi spuse în treacât : — Vezi de serbare, că dacă ți-ai luat un angajament, trebuie să iasă bine.
+
+Trică îi răspunse în doi peri.
+— Grija asta s-o am.
+
+59
+
+
+---
+
+<!-- PAGE 063 -->
+N-ar fi putut spune de ce, dar i se părea că băiatul  
+se mai liniștise. De altfel, curînd veniră și examenele  
+și-n toată școala se iscă forțotă nemaiopomentită, că nu-ți  
+mai vedeai capul de cite erau de făcut. Apoi trecură și  
+ele. Trică răspunse bine aproape la toate materiile, deși  
+cam cu gîndul aiurea. Sfintuța la fel. Apoi băiatul se  
+apucă din nou de pregătirea serbării și aproape că nu  
+mai dădea pe-acasă. Seara cînd venea, vorbea puțin și  
+numai cînd maică-sa îl întreba ceva anume.  
+
+Într-o dimineață, cînd se trezi, învățătoarea îl găsi  
+pe Trică pe prispă. Ținea în pumnul deschis un obiect  
+pe care la început nu-l desluși bine, și-o foaie de hirtie  
+mototolită. Se uita la ele năucit, clipind des, ca și cum  
+nu știa dacă-i treaz sau visează.  
+
+— Ce-i, Trică ? se speriasem maică-sa.  
+
+Fără o vorbă, băiatul îi pusesese în palmă o cruce mică,  
+dintr-un lemn alb, strălucitor, încrestată cu tot felul de  
+semne negre, și-un bilet. ,,Am plecat cu noaptea-n cap —  
+citi învățătoarea. Îți las amintire asta că știu cît ți-a  
+plăcut. Dumnezeu o să mă ierte și maica o să-mi dea  
+alta. Să-ți ajute cel de sus. Sfîntuța''.  
+
+Trică stătea rezemat de-un stilp al pridvorului, nemiscat.  
+Privindu-l, învățătoarea înteles că se întîmplase cu băiatul ei ceva de care abia acum ști dădea seama cu adevărat. Pînă de curînd fusese un copil ca toți ceilalți, poate puțin mai cuminte, poate puțin mai serios, dar un copil : spargea geamuri, batea mingea, visa să zboare în lună, făcea tot soiul de năzbîtii. Și-acum stătea aici, în fața ei, nemiscat, de parcă avea constința unei mari răspunderi... o răspundere gravă, apăsătoare. Dac-ar fi fost mai mare, da, ar fi știut. Dar el ? Era încă un băiat, un copil ! Ce-l schimbase  
+
+60
+
+
+---
+
+<!-- PAGE 064 -->
+așa? Ce-l zguduise atât de putemic în toată această întâmplare cu Sfintuța?
+
+Întinse mîna și îi înapoie bilețelul și cruciulita. Băiatul le luă fără o vorbă și din felul în care le strînse în pumn, îl simți cum clocoțește de mînie.
+
+— Trică ! îl chemă ea, văzându-l că începe să coboare treptele pridvorului.
+
+Cu piciorul în ultima treaptă, Trică se întoarse, așteptând.
+
+— Tu crezi că eu n-am făcut nimic. Da' nu-i adevărat. Am vorbit cu maica-sa, am rugat-o s-o lasă măcar pînă se face mai mare, pînă o putea s-aleagă singură.
+
+Dar degeaba au fost toate. Tu crezi că mie nu-mi pasă de ea? Crezi că nu mi se rupe inima? Am fost și la raion. M-am sfătuit cu tovarășii. Toți mi-au spus : să-i arăți ce-i mai bine, asta-i singurul fel în care te poți amesteca. Ce era să fac ? Spune ! Spune !
+
+Băiatul nu spuse nimic. Se-ntoarse și plecă spre poartă.
+
+— De ce nu spui ? strigă învățătoarea în urma lui.
+
+Dar aproape că știa ce ar fi putut să-i spună. Iși dădu seama limpede ce-l schimbase și mai ales ce-l durea atît pe băiat. Era un copil și nu suferea gândul că în preajma lui se făptuia ceva nedrept. Ea judeca altfel, știa că uneori, ca să-i deprinzi pe oameni cu ceea ce e drept și nedrept îți trebuie răbdare, înțelegere și foarte mult timp. Dar el, el era încă un copil.
+
+Trecu o săptămână în care nu se întâmplă nimic nou.
+
+Ca și inainte, Trică își vedea de treburile, făcea repetiții la școală cu copiii, îi cerea ba una, ba alta — ce avea nevoie pentru serbare — dar mai mult nu vorbea. În
+
+61
+
+
+---
+
+<!-- PAGE 065 -->
+ziua serbării, când se strigară premiile și fu pomenit numele Sfintuței, el se înfățișă pe estradă și luă pachetul cu cărți care i se cuvenea fetiței. Acasă îl impacheta cu grijă înt-o hîrtie albă și-l puse pe pervazul ferestrei, alături de alte cărți. „I-l duce maică-si, pesemne” — se gândi învățătoarea, dar de întrebat nu-l întrebă nimic.
+
+Dar a doua zi și băiatul și pachetul dispărură. Învățătoarea îl crezu întii plecat la joacă, cu băieți. Spre seară insă, află că nu-l văzuse niciunul, niciieri. Trece noaptea, dar băiatul nu se arată și pe învățătoare o apucară zorile pîndind în pridvor, cu ochii ațiți spre poartă. Abia dimineață află că îl văzuse cineva în ajun intr-o căruță care pleca în sus, spre Neamț. Toată ziua îl așteaptă neliniștită, cu un fel de presimțire rea. După amiază, Trică se-ntoarse, ostenit că abia îl mai țineau picioarele, cu părul înclaiat de sudoare și de praf. Se repezi la el să-l certe, dar băgă de seamă că băiatul se uită la ea cu un fel de tristețe blîndă și copilăroasă, care-i muie inima.
+
+— Unde-ai fost, Trică? îl întrebă.
+— I-am dus Sfintuței premiul.
+— Unde? se însămânță maică-sa. La minăstire? Și de ce nu mi-ai spus, m-ai lăsat să mă perpelesc?
+— Credeam că n-o să mă lași! spuse încet Trică.
+Mai mult nu fu chip să-l întrebe, pentru că băiatul se lăsa într-o rînă pe marginea patului, așa prăfuit cum era și peste câteva clipe dormea buștean. Învățătoarea îl dezbrăcă, îl acoperi și se așeză la masă să-i scrie lui bărbatu-său. „Dragul meu — scrisese ea — mai am, cite ceva de făcut, dar peste vreo săptămînă pot să-mi iau concediu. Neapărat vreau să venim la tine, să-l aduc
+
+62
+
+
+![Illustration on page 065](3 Doiniș,Sanda - Loteria_ocr_figures/page-065.png)
+
+---
+
+<!-- PAGE 066 -->
+și pe Trică. În ultima vreme numai griji îmi face băia-  
+tul ăsta, e trist, o să-ți povestesc eu de ce și cum, dar  
+să știi c-o să venim cât om putea de repede. Am avut  
+și eu necazuri. O să-ți istorisesc și-o să vezi ce greu e  
+să le explici copiilor ce înseamnă răspundere și cum  
+trebuie înțeleasă. Tu care ești așa de puțin împreună  
+cu noi, habar n-ai că băiatul nostru a crescut, că s-a  
+deprins să judece și să ne judece și nici nu știi ce bă-  
+taie de cap e să crești un băiat care s-a făcut dintr-o  
+dată mare. Și-ți spun de pe acum că dacă nu faci în-  
+tr-un fel ca la anul să fim împreună, o să ne certăm  
+urît. Nu scrie nicăieri că maiștrii betoniști trebuie să-și  
+crească copiii numai prin corespondență, asta s-o știi  
+de la mine...“  
+
+★  
+
+★ ★  
+
+Se auzi toaca bătând pentru vecernie și maica Sofro-  
+nia puse jos spelca cu care scohea simburii cireșelor  
+albe și se inchină larg peste piept. Sfîntuța făcu la fel,  
+apoi așteptă ca maica să se scoale, ca să poată stringe  
+sîmburii răspândiți pe masă. Dar maica parcă nu do-  
+vedea prea mare grabă să se urnească din loc. Stătea  
+pe scaun cu privirea pierdută, parcă un gînd anume o  
+țintuia acolo. Sfîntuța se întreba mirată ce-o fi avînd  
+maica. O știa limbuită și plină de neastimpăr pentru  
+cei șaispreze ci de ani pe care-i număra. Cînd te nimereai  
+în preajma ei, vorbea, vorbea și nu se mai oprea. Ai fi  
+zis că răscumpără cu limbujia asta toate ceasurile, zilele,  
+de singurătate. Și-apoi, vorbind, se mișca încocace și-n-  
+colo, cu un umblet anume, (pașii mărunti sub fusta  
+lungă și-nfioiată nu se vedea, părea că nu merge, ci  
+
+63
+
+
+---
+
+<!-- PAGE 067 -->
+lunecă) așa că te lua amețeala urmărind-o cu privirea.  
+Rareori o văzuse Sfintuța — în nenumăratele vizite pe care le făcuse la minăstire — atît de liniștită și pierdută în gânduri ca acum. E drept că de vreo două zile, simțea că se-ntimplă ceva curios cu maica.  
+
+Mai întîi, luni spre seară, maica Sofronia fusese vestită c-o așteaptă cineva la arhondaric. Se dusesse grăbită, curioasă, pusă pe vorbă. Se-ntorsese după citeva ceasuri și-i spusese Sfintuței :  
+— Du-te să dormi la maica Tudora. Mi-a venit cineva dintre rude.  
+
+Fetița îi sărutase mâna și se duseseră.  
+În zori se-ntorseseră, dar maica Sofronia o aștepta în fața casei :  
+— Nu fă zarvă, încă nu s-a sculat. Du-te de-ți fă rugăciunile pînă te chem.  
+
+O chemase abia pe la amiază, cînd pesemne ruda maicii Sofronia plecase, căci Sfintuța nu găsi pe nimeni în casă. Maica părea cam tulburată și cu gândurile aiurea. Ba o punea să facă una, ba alta, ba o chema la rugăciune c-un glas cam răstit și cam supărât. Numai seara, după vecernie, cînd se-ntorsesese acasă, maica îi dăduse un pachet învelit în hârtie albă, spunîndu-i :  
+— Uite, ăsta-i pentru tine. L-a adus cineva. E de la școală.  
+
+Și rămăsese infiptă în scaun, cu spatele țeapăn și miiile împreunate în poală, s-o privească.  
+Sfintuța se-mbujorase de bucurie la vederea cărților : va să zică fi dăduseră premiu. Își închipui cum o strigaseră : „Dima Paraschiva, pentru...“ Luă cărțile pe rând în mină, cîntărindu-le, răsucindu-le, nehotărîndu-se încă să le deschidă, să le răsfoiască.  
+
+64
+
+
+---
+
+<!-- PAGE 068 -->
+— Cine le-a adus ? întrebă ea cu ochii la copertile lucioase și colorate.
+— A trecut cineva din sat pe- aici ! spuse maica și privirea ei parcă iscodea ceva în înfățișarea fetiței. Sfîntuța simți și se pomeni oftind din senin cu ochii tot la copertile acelea. Apoi strînse cărțile la loc în învelitoarea lor albă și iarăși oftă.
+— Să nu le citesc. O fi păcat !
+Nu era o întrebare. Era mai degrabă o părere de rău pentru un lucru știut.
+— Vrei să le citești ?
+Spatele maicii deveni parcă mai țeapăn, deși nu făcuse nici o mișcare. Fetița nu răspunse. Ridică privirea speriată spre maica, își făcu iute cruce și întinse mîna după cartea de rugăciuni. O așeză pe masă în cercul de lumină al lămpii și începu să citească mișcând ușor buzele, nu pentru că n-ar fi putut altfel — ea doar citea foarte bine — ci pentru că așa le văzuse citind pe călugărițe.
+La fel de dreaptă, la fel de nemiscată, maica Sofro- nia privi multă vreme cercul acela de lumină, în care era așezată cartea de rugăciuni. Îi venea poate în minte că în urmă cu patruzeci și cinci de ani — patruzeci și cinci — tot așa se aplecase și ea peste o carte din care nu deslușea decît pozele, pentru că slovele nu le cunoștea. Sau poate că se gîndeau la băiatul care-o chemase în ajun la arhondaric și care noaptea trecută dormise pe- o lavită în antrețel, în timp ce ea bătea mătănii în odaia de-alături. Își amintea poate cum vorbind cu el, băiatul strîngea buzele îndurerat, în vreme ce ea dădea din cap cu încăpăținare, spunând neinduplcata : „Nu”. Dar cine poate ști la ce se gindea cu-adevărat
+5 — Loteria
+C5
+
+
+---
+
+<!-- PAGE 069 -->
+maica Sofronia! Pesemne însă că gândurile erau multe și apăsătoare, pentru că pe nesimțite spinarea începu să se immoaie, arcuindu-se și căutând reazimul spătarului.
+
+Cutule din obraz se adânciră, trase parcă de ceva dinăuntru.
+
+— Sfintuito, spuse.
+Fetița tresări.
+— Tu știi că Domnului îi place adevărul...
+Fetița se ridică iute și merse de-i sărută mina cu un fel de evlaviie sfinosă. Rămase rezemată de spătarul scaunului, în picioare.
+— ...Spune, tu ai vrut ori maică-ta ?
+— Am vrut, se sperie fetița și se minună ce repede știuse despre ce vorbește maica. Și cu am vrut. Că altfel rămâneam blestemată și aia nu mai era viață.
+— Cine te-a învățat așa ?
+— Mama. Și bunica. Da' mai cu seamă mama.
+— Și de școală, nu-ți pare rău ?
+Fetița se strânse, ghemuindu-se în spătar.
+— Spune! Nu-ți pare rău ?
+— Ba da ! șopti fetița, și o năpădiră fără veste la crimele, pentru că abia atunci simți cu adevărat cât îi pare de rău. Eu... aș mai fi vrut să-nvăț. Măcar doi ani. Măcar unul. Aveam o doamnă bună. Mama lui Trică. Trică avea o mulțime de cărți. Tot așa de frumoase ca astea.
+Nu făcu nici un gest, dar maica Sofronia știu că e vorba despre pachetul învelit în hârtie albă, de pe masă.
+— Ce fel de cărți ? întrebă ea.
+— Oh ! Ce cărți ! Mai frumoase decît orice, decît orice...
+66
+
+
+![Illustration on page 069](3 Doiniș,Sanda - Loteria_ocr_figures/page-069.png)
+
+---
+
+<!-- PAGE 070 -->
+5*
+
+Și fără veste îi veniră în gând toate : cărțile, „insula“ lor din magazine, călătoriile printre stele, planurile lui Trică pentru vacanța pe șantier, muntele străpuns dintr-un capăt intr-altul și altele. Vorbi despre toate, pe nerăsufiate, amestecându-le, încurcându-le, că abia puteai desluși un fir anume în toată încâlcarea asta. Și nu se opri decât atunci când prins de veste că maica
+
+67
+
+
+![Illustration on page 070](3 Doiniș,Sanda - Loteria_ocr_figures/page-070.png)
+
+---
+
+<!-- PAGE 071 -->
+Sofronia, cu gîndurile aiurea, n-o mai asculta. Sau poate n-o ascultase de la început. Anuți speriata și iar se strînse în spătarul scaunului :  
+— Vorbesc prostii. Să bat mătănii, maică ?  
+— Mătăni ? Pentru ce ?  
+Sfintuța nu răspunse.  
+— Culcă-te ! porunci maica. E tîrziu.  
+Dar după ce fetița se culcă, ea nu se mișca de pe scaun pînă tîrziu în zori, cînd se auzi toaca și se duse s-o scoale pe Sfintuța pentru slujbă.  
+Și iarăși trecu o zi în care Sfintuța aproape nu-i auzi gura maicii Sofronia. Doar după-amiază o chemase la scobitul cireșelor albe, pentru că era o datină ca la arhondaric să se găsească totdeauna dulceuri bune, ba chiar fără pereche în tot ținutul.  
+Și acum, uite, simburii stăteau risipți pe masă și trebuiau strînși, cireșele lăsau zeamă în vase și trebuiau presărate cu zahăr, toaca de vecernie bătuse și maica nici nu se urmea, nici nu spunea nimic. Sfintuța nu-ndrăznea să se miște de teamă să n-o tulbure. I se părea că se roagă și parcă totuși nu. Parcă privea ceva anume prin ușa deschisă. Întoarse și ea capul și se uită prin ușă împreței doi nuci care străjuiau portița joasă, dar nu desluși nimic, deși afară nu se întunecase încă de-a bineldea. Doar niște umbre strecurîndu-se de partea cealtă a gardului ; pesemne maicile, grăbind spre mina- tire. Se răsuci încetitor pe scaun, ca să-i atragă atenția maicii Sofronia că s-a făcut tîrziu. Dar cînd ridică ochii, maica rămase tot nemășcată. În jurul ei, lucrurile păreau la fel de neclintite, de reci, de cenușii. Sfintuței i se părut deodată că neclintirea asta seamănă cu un privighi, cum  
+68
+
+
+---
+
+<!-- PAGE 072 -->
+văzuse la ei în sat când murea vreun om. Şi iarăşi vechele spaime o năpădiră. Mâinile începură să-i tremure şi podul palmelor i se umezi. Nu-și putea lua ochii de la maica Sefronia, de la obrazul ei care, acum, că se-ntunecase de-a bineleaa, abia se mai deslușea; parcă toată ființa maicii se subția și se topea în umbra. Îngriți un suspin și-și infipse palmele în genunchi ca să nu mai tremure, dar fu de-ajuns mișcarea aceasta și tremurul parcă i se răspândi în tot trupul. Se sprijini de masă și se ridică.
+
+— Ne ducem şi noi ?
+
+De-abia putea vorbi şi dinții îi clănţăneau.
+
+Maica Sefronia răspunse cu voce tare, clară, deslușită :
+
+— Du-te tu !
+
+Și rămase acolo, cu privirea ațiinită spre portița unde se mișcau niște umbre.
+
+Dintr-un salt, fetiţa fu la uşa. Străbătu repede cărarea pînă la portiță, pe care o deschise aproape smulgând-o din balamale. Ieși în drum. Din dosul nucului, o umbra zvâcni și i se așeză în faţă. „Necuratul”, îi fulgeră Sfintuței prin minte. Dădu un țipăt și se ghemui moale lingă ulucă. Dar umbra se repezi spre ea și-o apucă strâns de umeri.
+
+— Taci !
+
+— Trică ! șopti Sfintuța. Începu să plîngă, hohotind înăbușit în colțul basmalei, în timp ce băiatul zăpăcit o scutura de umeri s-o facă să tacă, vorbindu-i repede pe șoptite. Fetiţa însă nu-l auzea. Scuturată de plîns se agățase de mineca lui :
+
+69
+
+
+---
+
+<!-- PAGE 073 -->
+— Trică, mi-e frică ! Aici mi-e mai frică. Nu mai stau ! Nu mai stau ! Nu mai stau !
+
+Se potoli abia tirziu, când căruța se depărta de mî-năstire întârât, că luminile nu se mai zăreau. Abia atunci văzu că pe capră, lângă Trică, stăteau doi băieți, Fane și Lică. Iar lângă ea, în căruță, Alecu încerca să-i explice pentru a nu știu cite oară :
+
+— Dacă nu veneai singură te-am fi „răpit”. Așa am hotărât cu Trică. Tata habar n-are c-am luat căruța. Cică zice că tata o să mă snopească în bătăi, da’ eu nu cred, că o să-i spui tot și o să-i pară bine. La toți ne pare bine. Mâine stai în casă, undeva, poate la mine, om vede. Poimâine dimineață plecați...
+
+Pe la ceasurile zece, oamenii strânși la poarta învăță-toarei — părinții celor trei — auziră căruța venind din susul ulitiei. Curînd, Trică struni caii în dreptul oamenilor, sări jos și se infățișă înaintea maică-si.
+
+— Am adus-o ! spuse el, c-un fel de infruntare dez-nădăjduită în glas.
+
+Cei din căruță așteptau incrementiţi.
+
+— Foarte bine ! rosti răspicat învățătoarea și se îndreptă spre căruță s-o ia pe Sfintuța.
+
+— Slavă domnului ! oftă una din femei. Numai cu maică-sa o să fie mai greu ! Măi, Alecu, nu puteai să spui că ieii căruța ? Ne-ai băgat în toți spirietii !
+
+În vremea asta, maica Sofronia se urni greu din scaun-ul în care stătuse nemăscați ceasuri întregi după plecarea Sfintuței. Dar de îndată ce apucă să se miște, o cuprinse parcă neastimpărul ei obișnuit. Alergă la gard, în spatele casei și-și strigă vecina, pe maica Tudora.
+
+— Mai e la tine nepoată-ta ? Și bărbatu-său ? Ia vor-
+
+70
+
+
+---
+
+<!-- PAGE 074 -->
+bește iute cu ei, că-mi trebuie căruța. Am o treabă și trebuie să plec în zori. Seara sint înapoi. Să-și facă milostenie cu mine, c-o să fie răsplătit pe lumea ailaltă. Hai, fugi și vorbește, că eu mă reped pînă la maica stareță să-i cer învoire. Cînd mă-ntorc, să-mi spui, da sau ba. Dar să fie da, nu ba...
+
+Și iarăși, alunecînd mai mult decît mergînd, o porni în grabă spre casa maicii starețe.
+
+* 
+
+*
+
+Două zile mai tîrziu, o căruță străbătea satul la pas, pe ulița mare. Alecu mîna caii gătit și mîndru, nevoie mare. In picioare lîngă el, Trică prindea în zbor cren-gile salcimilor, desprindea cu îndemînare cite o rămuri-că și-o arunca în joacă maică-si și Sfintuței care ședeau în căruță printre cuferi și coșuri. Învățătoarea rîdea, ferindu-se de crenguțele care-o ,,loveau“, chipurile, iai Sfintuța le prindea în poala rochiei, numărînd : ……șap-te… opt… nouă… zece…
+
+— Hai măi, își îndemna caii Alecu, pierdem, trenul și zice lumea că nu știu să mîn...
+
+Două femei ivite dintr-o curte se opriră, urmărindu-i cu privirea.
+
+— Ai auzit cum a fost ? se minună una din ele. A adus-o ieri maica Sofronia înapoi. Ca să nu sperie fe-meia — pe maică-sa adică, — a lăsat fata la învăță-toare și s-a dus singură de i-a spus toată tărășenia. Să te crucești, nu alta. Cică i s-a arătat semn din cer că fata aduce noroc satului și că s-o ție acasă, să n-o mai
+
+71
+
+
+---
+
+<!-- PAGE 075 -->
+ducă acolo. Să mor dacă te mint ! Mi-a spus chiar mai-
+că-sa — a fetii, tu ! Cu gura ei.
+— Cică să nu crezi în minuni ! se caină cealaltă cu
+palma la gură.
+
+1957
+
+
+![Illustration on page 075](3 Doiniș,Sanda - Loteria_ocr_figures/page-075.png)
+
+---
+
+<!-- PAGE 076 -->
+poveste despre doi băieți
+
+
+![Illustration on page 076](3 Doiniș,Sanda - Loteria_ocr_figures/page-076.png)
+
+---
+
+<!-- PAGE 077 -->
+
+
+
+---
+
+<!-- PAGE 078 -->
+Tudor ridică iute privirea. Dar cel care tocmai ieșea din clasă dădu din cap :  
+— Tot nu i-a venit rândul !  
+„Parcă-i un făcut ! se necăji Tudor. De o oră aștept... Și mereu același lucru : tot nu i-a venit rândul...”  
+Mototoli încuiat batista în pumni, apoi, ca să-i găsească o întrebuintare, și suflă nasul zgomotos în ea. Și cu toate că inima îi bătea — și de ciudă și de emoție — cit trei la un loc, zîmbi, aducîndu-și aminte că și atunci, tot cu batista începușe povestea.  
+
+***  
+
+Frămîntase cit frămîntase batista în mină, stînd strîmb pe canapea și uitîndu-se pieziș pe geamul compartimentului. Se plictisea. Cărțile le împachetase mama la fundul geamantului. Cuvinte încrucișate nu găsise. De vorbit n-avea cu cine : tata întinsese o hîrtie pe măsuța de la geam și-i explica celui de lîngă el :  
+„Vezi, tovarășe inginer, dacă dispozitivul ar fi atașat aici...” Mama îi povestea vecinei de bancă ceva despre gogoșari puși în oțet „care nu se mai înmoaie cit îi lumea“... Iar băiatul din fața lui n-avea chef de vorbă. Ținea o revistă pe genunchi, dar n-o citea. Fixa de-un sfert de oră un punct, aflat undeva în plasa doldora de geamantane și tăcea. Tăcea cu încăpăținare.  
+
+75
+
+
+---
+
+<!-- PAGE 079 -->
+Ca să facă ceva, Tudor desfăcu batista și-și suflă nasul zgomotos. Dar în afara unei priviri, pline de dezaprobare, a mamei, nu obținu nici un rezultat. Se hotărî să facă el primul pas. Se aplecă ușor înaite și-i zimb celuilalt prietenos :
+
+— Mergi tot la mare ?
+
+— Îh !
+
+Tăcere.
+
+— Cum te cheamă ?
+
+— Aurel !
+
+Tăcere.
+
+— Și mai cum ?
+
+— Nițu.
+
+Tăcere.
+
+— Știi, eu mă bucur grozav că mă duc la mare ! continuă Tudor, puțin stinjenit de tăcerea celuilalt. N-am văzut-o niciodată. Ție-ți pare bine ?
+
+— Nu.
+
+— De ce ?
+
+— Așa !
+
+„Hm ?! Curios ! se miră Tudor în gând. Nu-i pare bine ! Și doar am auzit că acolo e nisip cât vrei, apă cât vezi cu ochii ! Și lui nu-i pare bine ! Hm !”
+
+Celălalt tăcea mai departe. Tudor se foi ușor pe bancă.
+
+— În ce clasă ești ?
+
+— Intr-a șasea.
+
+— Și eu. La ce școală ?
+
+— În cartierul fabricii.
+
+— Aha ! se bucură Tudor. O să fim colegi. Și eu o să-nvăț acolo. Știi, tata a fost numit de curînd la București. O să-nvăț tot la școala ceea.
+
+76
+
+
+---
+
+<!-- PAGE 080 -->
+Tăcere.
+„Nu se bucură ! constată Tudor. Poate pentru că nu mă cunoaște“.
+— Știi, propuse el — eu am un șah mic. Dacă vrei putem să jucăm. E deasupra, în valiză...
+— Nu joc.
+— Nu-ți place ?
+— Ba da.
+— Atunci de ce nu joci ?
+— Așa !
+„Bine ! se oțărî Tudor în gând, la posacul din față. Nu vrei să joci. Vrei să taci și să te plictisești ? N-ai decît ! Și eu pot dacă vreau... Numai că eu nu vreau. Eu o să privesc pe geam și o să petrec grozav. Tu ui-tă-te pînă miine-n tavan“.
+Și tot restul drumului își petrecu vremea trăgând cu ochiul cînd la priveliștile care se fugăreau dincolo de geam, pe intinsul Bărăganului, cînd la băiatul din față care deschisese revista de pe genunchi și nu-și mai ridicase privirea de pe ea.
+*
+*
+Odaia era așezată în colțul vilei. Dacă priveai pe geamul din dreapta, pomii din parc te îmbiau foșnind : „Hai la umbră și la răcoare.“ Dacă ieșeai pe balconul din față, marea te întîmpina cu un „bună dimineața” surd, în timp ce degetele albe de spumă ale valurilor dezmierea obrazul fierbinte al plajei, spunând parcă : „Ce mai stai ? Uite ce nisip ! Numai bun să te tăvălesti in el“. Iar dacă te aplecai și mai tare peste balcon și priveai spre stinga...
+77
+
+
+---
+
+<!-- PAGE 081 -->
+Tudor se încruntă, se întoarse în odaie și se așeză plictisit pe marginea patului. Dacă priveai spre stânga ți se făcea lehamite și de vacanță și de viață. Da, da. Lehamite! Ai fi văzut acolo, pe balconul vecin un băiat posac și uricos, care de vorbit nu vorbea, de jucat nu se juca, de rîs, nu rîdea ; ce mai încocește ți-n-col, un uricos! Stătea pe balcon și se încruntă la toate : la soare, la plajă, la mare, la vapoarele din larg, la parc, la Tudor...
+
+Cînd sosiseră la Eforie. Vasile Bardoca, tatăl lui Tudor, propusese : „Tovarășe inginer, hai să cerem să stăm în aceeași vilă. Au să aibă și feciorii ăștia cu cin’ se juca și noi o să petrecem bine“.
+
+Zis și făcut ! Ce-i drept, familia Bardoca petrecea de minune, pentru că părinții lui Aurel erau oameni veseli și tare de treabă. Dar el... mai bine s-ar fi dus în tabără. Acolo, între-adevăr ar fi avut cu cine se juca, cu cine vorbi, cu cine rîde. Pe cită vreme aici...
+
+În prima zi cînd coboriseră pe plajă, Vasile Bardoca îi întrebasse pe ceilalți : „Da’ unde vi-i feciorul ?“ ,,Aurel ? — zîmbise inginer Nițu — a rămas la vilă“. — De ce ? întrebase Bardoca. ‘— Ei ! Are el niște socoteli ! Și soțiia Nițu schimbaseră între ei o privire, care-l nedumerise pe Tudor.
+
+A doua zi dimineața, Tudor bătuse încetișor la ușa lui Aurel : — Bună dimineața ! Am venit să te iau la plajă. — ’Neața. Nu merg. — De ce ? Ieri a fost tare frumos ! M-am bălăcit toată vremea. Ție nu-ți place să te scalzi ? — Ba da. Da’ nu merg !
+
+78
+
+
+---
+
+<!-- PAGE 082 -->
+Tudor rămăsesese încurcat în prag. Celălalt stătea pe marginea patului și-l privea cu ochii încă somnoroși.
+— Azi m-am gândit să fac o cetate din nisip. Cu metereze. O să le întăresc cu pietre. Șanțurile de apărare le umplu cu apă. O să fie strașnic !
+— O cetate ?! Ochii lui Aurel străluciseră o clipă, apoi deveniseră din nou somnoroși.
+— Bine ! Fă-o !
+— Păcat că nu prea sunt băieți acolo unde facem noi plajă. Sint numai prichindei care în viața lor n-au auzit de-o cetate fortificată. Dac-ar lucra la cetate doi băieți mari... știi... așa ca noi, ar ieși mai bine.
+Celălalt mormăise ceva nelămurit. Tudor dăduse să plece.
+— Va să zică, nu vii ?
+— Nu.
+— Bine...
+Și plecase. Toată dimineața se războise cu cetatea, cu meterezele și cu nisipul care nu voia cu nici un chip să capete duritatea betonului. Pînă la urmă, necăjit, o șterse de pe fața pământului, cu laba goală a piciorului și constatase cu tristețe că se plînsise grozav. ,,Tot în tabără ar fi fost mai bine ! Tata vorbește cu tovarășul Nițu, mama s-a dus la ghiol cu soția lui, iar eu... Pentru ce m-au mai luat cu ei ? Asta-i vacanță ?“ Îl ustura spatele și-l durea capul. ,,Ai stat prea mult la soare ieri !“ spusesese tata, și-l sfătuisese să se întoarcă la vilă. Plecase de pe plajă încruntat, ținând sub braț cutia de șah, pe care o căra de geaba după el, de două zile.
+Cînd ajunsese la vilă, îl zărise pe Aurel pe balcon.
+— Vii să jucăm ? îl strigase, arătându-i cutia.
+— Nu !
+79
+
+
+---
+
+<!-- PAGE 083 -->
+Tudor îl ispitise din nou.
+— Am și țintar. Știi să joci ?
+— Da.
+— Îți place ?
+— Grozav !
+— Atunci, hai !
+— Nu joc !
+— De ce ?
+— Nu vreau !
+
+Tudor urcase furios scările. „Nu vii pentru că ești un îngîmfat, domnule Aurel Nițu — repetă în gând — un îngîmfat și-un uricios. Să mai poftesti să-ți dau bună ziua. Sau să te mai chem la joacă! Am eu ce face și fără dumneata, domnule îngîmfat. Miine o să-mi fac o cetate și mai mare. Poimâine o să-mi fac două. Iar la anul... la anul mă duc în tabără!“ Și trîntise ușa odăii în așa fel, încît „domnul“ de-alături să înțeleagă că lui, Tudor Bardoca, puțin ii pasă de îngîmfatii.
+
+Acum, stând pe marginea patului și așteptîndu-și părinții să se îmbrace, Tudor zîmbi plin de mîndrie. Tre-cuseră trei zile de-atunci și el își ținuse făgăduiala. Dar în fundul sufletului, parcă mîndria se prefăcea în ciudă. Ceva, nici el n-ar fi putut spune ce, îl făcuse să-l îndrăgească pe băiatul de alături. Poate felul cum vorbea încrețindu-și ușor fruntea, ca un om vîrstnic și tare serios. Poate ochii lui mari, albăstri închiși, care semănau cu fața mării înainte de ceasul apusului. Poate !! I-ar fi plăcut să se împrietenească, da, i-ar fi plăcut... Uf, ce vacanță !!! 
+
+Cu astfel de gînduri, tot drumul pînă la plajă tăcu incruntat.
+
+80
+
+
+---
+
+<!-- PAGE 084 -->
+— Azi ați întârziat ! le strigă inginerul Nițu. O să vă tăiem porția la pepene.
+— Ba de loc ! rîse tatăl lui Tudor. Mi-e sete ! Tu- dore, fugi și-ngroapă pepenèle la mal în nisip, să se ră- cească !
+Abia cînd ajunse lîngă apă, cu pepenele în brațe, Tu- dor îl zări pe Aurel : stătea pe nisip, ferindu-și ochii de soare.
+— Bună dimineața ! Vrei să-mi ajuti să fac o groapă ? se bucură el, uitînd de mînia împotriva „îngîmfătilor”.
+Aurel se ridică și-ncepu să scurme cu o piatră pămîn- tul ud.
+— Va să zică, totuși ai venit ? se bucură Tudor.
+— Ce să fac ? M-au silit !
+— Cine ?
+— Mama. Tata. Cică nu e sănătos să stai toată vremea în odaie.
+— Au dreptate. Tu de ce stai în odaie ?
+— Pentru că sint nenorocit !
+— Ce ești ?
+— Nenorocit !
+— Cum adică ?
+— Așa !
+O vreme Tudor nu știu ce să spună. Una-i să ai de-a face cu un băiat îngîmfat, și alta-i să ai în fața un băiat „nenorocit”. Pe urmă își luă inima-n dinți :
+— Ești bolnav ?
+— Mai rău !
+Tudor clipi nedumerit : mai rău decît bolnav nu poate fi decît mort. Ori, Aurel era viu, viu de tot. Se așeză lîngă el.
+— Ți s-a întimplat ceva nemaipomenit ?
+6
+81
+
+
+---
+
+<!-- PAGE 085 -->
+— Nemaipomenit ?! Mult mai rău...
+— Ce ?
+O pauză. Apoi :
+— Sînt corijent. La matematică.
+De mirare, Tudor fu cît pe-aci să scape pepenele în apă. Avea dreptate Aurel. Asta e între-adevăr mai rău decît să fii bolnav.
+— Și ce faci ?
+— Ce să fac ? Mă chinui !
+— Nu înveti ?
+— Ba da. De asta nu vin pe plajă. De asta nu joc șah, nici țintar. Stau cu matematica în față și-nvăț. Dar nu se prinde nimic.
+— De ce ?
+— Mai întrebi ? Întîi și-ntîi pentru că n-am cap de matematician. În al doilea rînd, pentru că eu stau cu cartea pe genunchi, dar gândul îmi e la toate astea : plajă, baie, șah, cetate de nisip.
+Tudor se scărpină încurcat după ceafă.
+— Hm ! Stai prost.
+— Știu ! îl aproba Aurel cu tristețe
+— Și ce-ai de gînd să faci ?
+— Nimic.
+— Cum nimic ?
+— Uite-așa : nimic. O să mă chinui mai departe. Ce te-ncrunti ?
+— Mă gîndeam. Pînă acum n-am mai văzut pe ni-meni să ia o corijență povestind numai că s-a chinuit o vacanță întreagă.
+Aurel încreri fruntea și se aplecă spre Tudor.
+— Parcă eu nu știu ? Dar vreau să le-arăt lor — și cu degetul impunse aerul spre locul de unde se auzeau
+82
+
+
+---
+
+<!-- PAGE 086 -->
+glasurile vesele ale părinților — că eu vreau să învăț.  
+'Tata spune mereu : ,,Ai rămas corijent numai pentru că  
+n-ai învățat cum trebuie. Slavă domnului, prost nu ești.  
+Ești doar lenes !“ Ori asta nu-i adevărat. A recunoscut  
+și Petrică, un coleg de-al meu. Eram în clasa a IV-a.  
+L-am rugat să-mi ajute la o problemă. A încercat, dar  
+s-a plictisit repede. Cred și eu că se poate plictisi ci-  
+eva. dacă eu nu pricep nimic. Mi-a spus : ,,Ce să-mi  
+pierd timpul cu tine ? N-ai cap pentru matematici, și  
+pace bună !“ Vezu ? Și ,,ei“ îi tot dau zor cu lenevia. Ei  
+bine, o să le arăt eu că nu sunt lenes. Că sunt în stare să  
+învăț o vacanță întreagă. Să nu mă joc, să nu mă scald...  
+Și la sfârșit, au să vadă și ei că într-adevăr, asta e…  
+n-am cap de matematician.  
+— Și cu corijența ? Ce-ai să faci cu corijența la  
+toamnă ?  
+— Nimic. De pe-acum știu că n-am să fac nimic.  
+Poate — glasul lui Aurel se făcu dintr-odată tainic —  
+când s-o sfirși vacanța, am să fug pe mare și mă fac ma-  
+rinar. Am citit într-o carte că toți oamenii nenorociți  
+fug pe mare și se fac marinari.  
+— Asta nu cred ! protestă Tudor. Toți marinarii pe  
+care i-am văzut sunt oameni veseli. N-au de loc mutre  
+de oameni nenorociți. Cintă toată ziua...  
+— Ce-are-a face ? Eu o să fiu un marinar trist.  
+Tăcură o vreme netezind cu palmele nisipul ud, dea-  
+supra penelei.  
+— Știi — spuse Tudor într-un tîrziu — la început  
+am crezut că ești tare îngîmfat. Bine zice mama : de loc  
+nu mă pricep la oameni.  
+
+6*  
+83
+
+
+---
+
+<!-- PAGE 087 -->
+Cînd Tudor apără în pragul ușii, a doua zi dimineață, Aurel îl primi posomorît :  
+— Degaaba. Azi nu mai merg pe plajă.  
+Tudor intră și închise ușa în urma lui.  
+— N-am venit să te iau. O să stau cu tine.
+
+
+![Illustration on page 087](3 Doiniș,Sanda - Loteria_ocr_figures/page-087.png)
+
+---
+
+<!-- PAGE 088 -->
+— De ce ?
+— Ai să vezi... Da’ nu te superi dacă stau ?
+Nedumerit, Aurel îi făcu loc pe-un colț de pat. Tudor părea necăjit.
+— Știi, Aurel, eu sînt grozav de mîndru. Asta nu-i bine, știu. Ieri n-am vrut să-ți spun. Dar după ce te-am ascultat... știi... dacă tu ai avut curajul să-mi spui... eu de fapt eram un băiat străin... știi... și eu am rămas corijent !
+— Tu ? De uimire, Aurel făcu ochii mari. La ce ?
+— Ei, la ce ! La matematici. M-am lăsat pe tînjală.
+Și-acum, în vacanță, am vrut să fac la fel. N-ai văzut ? Toată ziua șah, toată ziua plajă... Dar cînd am auzit cum... cum te chinui tu... ce să-ți spun... Ascultă, Aurel, m-am hotărît : vreau să-nvățăm împreună.
+— Tu ?!
+— Da. Ce te miri așa ? Numai că, vezi tu, eu nu sînt așa ca tine... tare... hotărît. Eu vreau să mă și joc...
+— Cum o să te joci ? se indignă Aurel. Ești corijent doar...
+— Ți-am spus că eu nu sînt tare ca tine. Trebuie să mă și joc... Uite cum m-am gândit : învățăm dimineața pînă la nouă. Pe urmă coborim pe plajă ! Ne jucăm. Se odihnește și mintea, și avem și noi un pic de vacanță.
+La prînz ne-ntoarcem, și pînă la masă învățăm ; după masă jucăm șah sau ne plimbăm pe plajă, și pe urmă iar învățăm. Ce zici ?
+— Prea multă distracție ! La mine mai merge, că tot n-o să iasă nimic. Eu n-am cap de matematician. Dar tu, tu trebuie să-nveți serios...
+— Ți-am spus — se scuză Tudor — eu nu sînt ca tine, tare... hotărît...
+85
+
+
+---
+
+<!-- PAGE 089 -->
+— O să te fac eu să fii tare ! hotărî Aurel. Și dacă după ce ne-om chinui, o să văd că nici tu n-ai cap de matematician, te iau cu mine pe mare. Ne facem amîndoi marinari. Hai să luăm cartea. Uite și-un caiet. Tu ce știi mai puțin din toată materia ?
+
+Tudor zimbî ridicînd umeri :
+
+— Nu prea știu nimic. Eu zic s-o luăm de la început !
+
+Aurel fluieră încetisitor a mirare :
+
+— Așa prost stai ? Atunci cred că o să suprimăm șahul de după masă...
+
+***
+
+Era atîta larmă în compartiment că mama lui Tudor duse mîinile la urechi și strigă pe jumătate în glumă, pe jumătate serios :
+
+— Gata ! M-ați asurzit. Să spună fiecare ce vrea și o să vă dau de mâncare pe rînd, lupilor. Mâncare e de-ajuns. Numai guri flămînde să fie !
+
+Băieții rîseră în cor și-și dădură coate :
+
+— Vrem un pe-pe-ne ! Vrem un pe-pe-ne ! Vrem un pe-pe-ne !
+
+— Le-a făcut o poftă de mâncare vacanța asta ! rîse Vasile Bardoca, arătându-i pe băieți. Soarele, întotul, zbenguială. Și plimbările. Cînd îi căutai, ia-i de unde nu-s. Dispăreau ceasuri întregi.
+
+Cei doi băieți zîmbiră și schimbară între ei o privire, amintindu-și deopotrivă de orele de învățătură ca și de zbenguială, de plimbări și de toate...
+
+— Lasă băieții — glumi mama lui Tudor. Mai bine ajutati-mă să împart pepelele în părți egale. Hai, tovarășe Nîțu, doar ești inginer.
+
+86
+
+
+---
+
+<!-- PAGE 090 -->
+— Ba, de loc — sări Vasile Bardoca. Problema asta s-o facă Tudor. El e doar fruntașul clasei la matematică. Anul ăsta în caietul de note avea numai cinci. Nu știi care-i visul lui? Să se facă profesor de matematică. Hai, Tudore, ce stai? Desenează un elipsoid cu diametrul mare de...
+
+Dar Tudor părea că n-aude. Privea cu încăpățâinare pe geam, de parcă nu-și putea lua ochii de la punctul acela de foc în care ardeau ultimile pâlpiiri ale apusului. Și nu întoarse capul decît târziu, când simți mîna lui Aurel, cuprinzându-i umărul și stringându-i-l încetisor.
+
+* * *
+
+Ușa clasei se deschise din nou și un alt băiat năvăli pe culoar, îmbujorat și fericit.
+— Gata! Am știut!
+Dădu cu ochii de Tudor și își aminti. „Pe Nițu îl aștepti? Acuma îl ascultă... după mine...“.
+„Acuma îl ascultă! gândi Tudor și-n pumnul asudat, batista deveni un boț mic, mic și umed. Numai de nu i-ar trece iar prin minte prostia aceea: că n-are cap de matematician...“
+
+1955
+
+
+---
+
+<!-- PAGE 091 -->
+intimplore dintr-o iarnă grea
+
+
+![Illustration on page 091](3 Doiniș,Sanda - Loteria_ocr_figures/page-091.png)
+
+---
+
+<!-- PAGE 092 -->
+
+
+
+![Illustration on page 092](3 Doiniș,Sanda - Loteria_ocr_figures/page-092.png)
+
+---
+
+<!-- PAGE 093 -->
+....patru împărțit la șase nu se poate. Adăugăm un zero și punem virgulă la cit. Patruzeci împărțit la șase... de șase ori. Șase ori șase...
+Matei se opri o clipă : din odaia de-alături se auzea — acum mai puternic — sforăitul greu al tatălui.
+„Șase ori șase, treizeci și șase. Din patruzeci...“
+Și iarăși se opri : parcă se trezise tata... Nu. Nu se trezise. Se întorsesese pesemne, pe cealaltă parte, cu fața la perete, pentru că sforăitul răzebea acum infundat, greoi, însotit de respirația răbufnità, șuierată, ca aceea a unui om tare trudit.
+.....din patruzeci rămân patru. Șase în patru nu se poate... nu se poate... nu se poate...
+Încet, cu o mișcare ostentită, Matei își lăsă fruntea peste foaia plină de socoteli. „Iar a băut tata. Iar a băut. Acum o să doarmă pînă tirziu, când s-o întuneca. O să se scoale și iar o să plece la circiumă. O să vină cine știe când, după miezul nopții, și-o să se trintească așa, îmbrăcat, pe patul pe care el, Matei, îl desface în fiecare seară. O să sforăie. o să geamă. și-n zori, în casă o să duhnecasă a vin acrit și a tutun. Iar mîine, după lucru...“
+Tictac-ul deșteptătorului îi aminti că-i făgăduise lui nenea Tudor să-l trezească pe tata la cinci : era cinci și un sfert. Se ridică repede și intră în odaia cealaltă. Zări în lumina slabă a becului trupul voinic al tatălui,
+91
+
+
+---
+
+<!-- PAGE 094 -->
+prăvălit de-a curmezișul patului, și privirea i se opri pe bocancii murdari, infundăți în fața albă a unei perne. Ceva, un fel de nod dureros, se urcă, pînă în gîtleej încîndu-l ca unda unui plins stăpinit. Îl apucă de umăr și-l zgilți :
+— Tată, scoală-te ! Omul se întoarce mormând ceva nedeslușit. Aopi deschise ochii:
+
+
+![Illustration on page 094](3 Doiniș,Sanda - Loteria_ocr_figures/page-094.png)
+
+---
+
+<!-- PAGE 095 -->
+— Ce vrei?
+— Scoală-te ! A zis nenea Tudor că la șase aveți consfătuire la șantier. Cică să te trezesc, să te duci.
+Tatăl se ridică brusc și Matei se feri în lături cu teamă, dar și cu un fel de nădejde nelămurită în suflet : „Poate se duce. Atunci...“ Dar tatăl stătea nemis-cat pe marginea patului, străin parcă în mijlocul odăii neîncălzite, cu lucruri aruncate de-a valma pe scaune și pe masă. Ai fi zis că privirea i se agățase undeva, în fundul odăii. Matei nu întoarse capul. Știa că tatăl se uită la sertarul acela unde mama ținea batistele curate.
+Dimineaa, înainte ca ei să plece, unul la școală, celălalt la șantier, mama deschidea sertarul și spunea râzând :
+„Venii să vă dau batiste curate, nevolnicilor, că altfel o să vă suflați nasul în mîințile surtucului...“ și le dădea câte o batistă și câte o sărutare.
+— E cinci și un sfert. Zicea nenea Tudor că la șase...
+— Ducă-se dracului !
+Vorba aspră parcă-i izbi pe Matei drept în față. Tăcu și trecu în bucătărie. Îl auzi pe taică-său îmbrăcîndu-și haina cu un icnet. Apoi, omul intră în bucătărie, cu pasul cam șovăielnic și privirea tulbure. Lîngă ușă se opri, amintindu-și parcă ceva. Scoase din buzunar cîteva hârtii și le aruncă pe masă.
+— Ia-ți niște mezeluri de la colț pentru seara. Să nu stai flămând. Eu o să viu tîrziu.
+Și fără altă vorbă, ieși.
+Matei urmări o vreme zgomotul pașilor greoi bocâ- nind pe caldarim, pînă se pierdura cu totul. Apoi, cu un gest scurt, mătură de pe filele caietului banii și se aplecă din nou asupra socotelilor : șase în patru nu se
+93
+
+
+![Illustration on page 095](3 Doiniș,Sanda - Loteria_ocr_figures/page-095.png)
+
+---
+
+<!-- PAGE 096 -->
+poate. Punem un zero... șase în patruzeci, de șase ori... șase ori șase...
+
+* *
+
+Adîncit în socoteli, nu-l auzi pe Tudor Comnaru de- cit în clipa cînd intră pe ușă. Ridică iute capul, cre- zînd că se întorses teaică-său. Cînd dădu cu ochii de Tudor, bucuria de pe obraz i se stinse deodată.
+
+— Nu-i acasă, spuse încet.
+
+— De ce n-a venit la consfătuire ? Nu i-ai spus să vină ?...
+
+Matei încuviință fără vorbe.
+
+— Și-a zis că vine ?
+
+— A zis că... N-a zis nimic.
+
+Tudor Comnaru se încrunță : „Să mă bată ăl de sus dacă mai înțeleg ! Cum își lasă Angel echipa așa, în voia soartei ? Tocmai pe gerul ăsta ! Acuma unde-i ?“
+
+Aștepta un răspuns. Dar în locul vorbelor, întâlni pri- virea băiatului : ochii intunecați și rotunzi străluceau. Străluceau prea tare. Și pleoapele se zbăteau nervos, chinuindu-se să stăvilească năvala lacrimilor. Se apro- pie de el.
+
+— S-a dus să bea ? Ei, nu te necăji. Așa li se mai întîmplă oamenilor... bărbaților...
+
+Și, cu un gest stingaci, încercă să-l mîngâie. Dar bă- iatul alungă alintarea prinzându-i mâna.
+
+— Nene Tudor ! Ce-o să fie cu noi ? Ce-o să fie cu tata ? Mai demult, eu eram prietenul tatii. Venea acasă și spunea : „Ei, tovarășe Matei, gata cu lecțiile ? Te iau la șantier să vezi cum mai stăm cu fundațiile“. Mama rîdea și el se încrunța. „Nu rîde. Că aici e treabă serioasă. Mai bine dă-i „tovarășului“ asta un măr să
+
+94
+
+
+---
+
+<!-- PAGE 097 -->
+aibă ce ronțai pe șantier“. Așa spunca. Pe șantier îmi arată o mulțime de lucruri. Nu numai mie. Și altora le arată. Uneori glumea. Îi spunea cuiva : ,,Ce, nu știi ? Du-te la fiu-meu să-ți explice !“ Și abia-și ținea rîsul. Ce mîndru eram de tata. Acum...
+
+Băiatul nu-și isprăvi vorba. Dar pe obrazul lui, Tudor Comnarului desluși lesne gândul : acuma mi-e rușine. — Nu-i bine, Matei, spuse, clătinind capul. Tu nu poți judeca...
+
+Matei îl privi tăcut. Și omul înțeles că băiatul poate și are dreptul să judece. Că judecata lui pornea de undeva, din adîncul inimii, de acolo de unde sâlășluia, fierbinte, dragostea pentru tatăl său. Întinse mîna și-i alintă obrazul umed : — Vezi tu, Matei ? Cu oamenii și cu viața lor, nu-i lucru simplu...
+
+Și cu un gest îi arată odaia : lumina slabă, vasele murdare, grămădite pe plită, fața de masă pătătă deo-potrivă de grăsime și de cerneală. Și gestul lui, care le cuprindea pe toate într-o singură mișcare, spunea parcă : ,,Toate astea tu le știi. Acum ești un băiat mare !“
+
+Știau amîndoi. Tudor Comnarul îl cunoștea de mult pe Angel Oprea. Și unul și celălalt erau maiștri betoniști. Angel fusese totdeauna muncitor de nădăjde. Îl știa la treabă priceput și destoinic. Lucraseră împreună pe câteva șantiere : ridicaseră o uzină, apoi încă una, apoi puseseră temelile unui furnal tocmai în inima Huneodoarei. În urmă cu câțiva ani veniseră aici. Uncori, Angel rîdea : ,,Dacă-o merge așa, Tudore, apoi ,,to-varășul“ Matei, cînd s-o face mare, un-s-o duce, numai pe beton turnat de taică-său o să calce“.
+
+95
+
+
+---
+
+<!-- PAGE 098 -->
+Odată, la începutul lucrărilor, i-a spusese: „Mai Tudore, voi o să aveți deseamă ședință de partid. Când o fi la angajamente să spui așa: o fi zădud să se topească armătura în mina noastră, o fi ger să crape pietrele, noi turnarea fundațiilor n-o s-o oprii nici o clipă. O să facem niște temelii combinatului să se ducă vestea. Și dacă n-o fi așa, apoi să nu-mi mai zici mie pe nume Angel Oprea, betonistul”. Pe vremea aceea, Angel era om vesel. Viorica, nevastă-sa, o femeie măruntă și puțintică la trup, îl necăjea: „Nu știu când o fi având vreme să ți lucrezi, că toată ziua râzi!“ Angel se prefăcea că se supără: „Da’ tu când o fi având vreme să-ți vezi de gospodărie că toată ziua mă certi!“ Dar nu se supără. Scotea haina, sufleca minciile cămășii și întreba: „La ce să-ți ajut, voinicuțo? Lemne ai?”
+
+Intr-o zi, în urmă cu vreo patru luni, pe șantier se răspândise vestea că Viorica a murit. Angel Oprea venea la lucru ca de obicei. Spusese scurt și cu asprime: „A căzut. A alunecat pe scară de la pod. Doctorul a zis: „fractură de bază“. Astea au fost toate vorbele pe care le rostise în ziua aceea și-n cele următoare. Venca, pleca. Vorbea puțin. Lucra cu gândul aiurea. Slăbise. Treaba o lăsa mai mult pe seama altora.
+
+De la o vreme, oamenii din echipă băgaseră de seamă că Angel Oprea s-a apucat de băutură. La început nu-și bătuseră capul cu asta. „Ei, omul la amar, ce vrei?“ Mai apoi insă, i l sfătuiseră: „Las-o-ncolo de băutură, Angele! Durerea se ogoiește, năravul rămâne“. Unii în treacât, alții stăruitor, îngrijorați. Tudor Commaru l-a luat de-o parte într-o
+
+96
+
+
+---
+
+<!-- PAGE 099 -->
+zi : „Mă Anghele, ți-s prieten și tovarăș. Știi că ți-i greu singur. Ia-l pe Matei și mută-te la noi. Mai bine o vorbă de prieten decît un pahar plin“. Anghel se în- cruntase : „Vezi-ți de treaba ta !“ Și-atit.
+Tudor Comnaru se ridică.
+— Tu ai mîncat ceva astă-seară, Matei ?
+— Am mîncat.
+— Singur ?
+— Singur, încuviință Matei și, cu dosul palmei, aco- peri banii de pe masă.
+— Nu vrei să vii pe la noi ?
+— Nu. Stau acasă ! Vocea băiatului șovăi o clipă. Îl aștept pe tata.
+Omul se urni greu din loc. Îl apăsa parcă ceva în coșul pieptului. Poate privirea tristă a copilului, poate urmele de lacrimi pe obraji rotunzi. În ușă se opri :
+— Matei, ție ți-e greu, așa-i ?
+Buzele băiatului se strînsere, subțiindu-se a plîns.
+Dar ochii stăruiau să-l privească, cuminiți, gravi. Tudor Comnaru se gândi cu mirare că-l văzuse crescînd de-a lungul anilor și pînă nu demult, se gindea la el ca la un băiețel oarecare, care se joacă, face poznne, se duce la școală și pune întrebări năstrușnice. Și iată acum, în fața lui stătea un băiat mare, ai cărui ochi gravi pu- neau parcă aceeași întrebare : ce-o să fie cu tata ?
+— Ce mare te-ai făcut, Matei ! spuse Tudor și zîmbi unui gând. Aproape un bărbat ca tata, ca mine.
+Și cuvintele următoare le rosti fără să vrea cu gla- sul acela pe care Matei îl auzise de-attea ori pe șan- tier :
+7 — Loteria
+97
+
+
+---
+
+<!-- PAGE 100 -->
+— Spune-i lui Anghel că de mîine, echipa lui a trecut de noapte. Aşa s-a hotărît la consfătuire. Se anunță ger mare. Şi-i bucluc cu betonul.
+* * *
+I se pare că cei dinăuntru nu auziseră, așa că clocâni din nou, de astă dată mai tare. Apoi așteptă, adăpostindu-și obrazul cu mâna de șchiul viscolului. După câteva clipe, ușa se deschise, și Tudor Comnaru apără în prag. Îl apucă de mînă și-l trase îmăuntru.
+— Ce-i cu tine pe vremea asta ?
+— Tata nu s-a-ntors ! spuse Matei.
+— De unde să se-ntoarcă ? La ora asta e în schimb.
+— Nu e.
+Buimăcit încă de somn, omul nu înțelege.
+— Cum, nu e ?
+— Nu e, repetă Matei. Am fost acolo și nu e. A plecat de-acasă la prînz, dar nu s-a dus acolo. Cineva din echipă zicea că l-a văzut...
+— Unde ?
+Băiatul tăcu, cu ochii în pământ. Şi Tudor Comnaru înțelege. Își trece mâna peste obraz cautând să se dezmeticească. „A lăsat echipa așa, în voia soartei, se gîndeşte. Acum, pe gerul ăsta”. Se uită la ceas : unsprezece jumătate.
+— Așteaptă, spuse. Încălzește-te lângă sobă.
+Se îmbracă în grabă, și luă șuba și se-ntoarse. Băiatul aștepta nemiscat cu spinarea lipită de sobă.
+— Te duci dumneata, nene Tudor ?
+— Mă duc. Altfel se prăpădește tot betonul pe care l-am turnat de dimineață. HaideM.
+
+98
+
+
+---
+
+<!-- PAGE 101 -->
+Afară, viscolul îi izbi în obraz cu spulberările invârtejite ale nămeților. Prin iureșul zăpezii ridicate, luminile șantierului se zăreau aproape, foarte aproape. Băiatul își ridică gulerul hainei.
+
+— Merg cu dumneata, nene Tu- dor. Poate... poate vine tata. Lui îi place să mă ia pe șantier.
+
+Omul vru să-i amintească de ora tîrzie, dar se răzgândi : mai bine cu el pe șantier decît singur în casa pustie. Îl luă de mînă și porniră amîndoi ferindu-și ochii cu mîna de acele înghețate ale zăpezii. Curînd zăriră, printre luminițele palide ale becurilor, scheletul metalic al halei și forfota abia deslușită a oamenilor. Tudor Comnaru își scutură zăpada de pe gulerul șubei.
+
+— Cît îi, Dobre ? Îl întrebă pe primul om ieșit să-l întimpine.
+
+7*  
+99
+
+
+![Illustration on page 101](3 Doiniș,Sanda - Loteria_ocr_figures/page-101.png)
+
+---
+
+<!-- PAGE 102 -->
+- 18° sub zero. Băgăm aer cald, dar dumnezeu știe ce-o să facem cu acoperirea.
+- S-au luat probe ?
+- S-au luat. Pînă acum e bine.
+- Adu planurile. Și cheamă oamenii.
+
+Matei se sprijini de cofrajul de lemn al unei fundații. Împrejurul lui, oamenii forfoteau, bătîndu-și brațele cu palmele, ca să se încălzească. Auzea glasul lui Tudor Comnaru răspunzînd unuia, chemînd pe altul, chibzuind cu toți. Înțelegea bine despre ce e vorba. Îl auzise de multe ori pe taică-său povestind despre turnarea betonului. Știa că sub cinci grade betonul îngheață. Trebuia menținută căldura în fundații, altfel, toată munca oamenilor se irosea. Și taică-său, în loc să fie aici, lîngă oamenii aceștia, care luptau să salveze betonul, stătea într-o circumsferă. Aproape de el, un om spuse în șoaptă :
+- Uitați-vă la nea Tudor. Toată ziua a muncit în schimbul ălalt. Cade din picioare de oboseală. Și lui Anghel, puțin îi pasă.
+
+Simți că de rușine, obraji încep să-i ardă mai tare ca tăișul gersului. Se strecură pe lîngă fundații, ieși din hală și o porni de-a dreptul prin nămeți. Casa lor nu era departe : în marginea șantierului. Zări lumina aprinsă în odaie, așa cum o lăsase. Va să zică, taică-său nu venea. Dar cînd intră în casă, îl văzu: sta pe marginea patului desfăcîndu-și bocancii. La zgomotul ușii ridică ochii :
+- Unde-ai fost ?
+Matei se rezemă de canat ; urechile încă îi țiuiau de șuierul vântului.
+- Unde-ai fost, te-am întrebat ?
+- Pe șantier.
+
+100
+
+
+---
+
+<!-- PAGE 103 -->
+Omul tăcu o vreme, de parcă nu l-ar fi auzit. Apoi începu să se dezbrace respirând greu.
+— Culcă-te ! Mîine te duci la școală.
+Matei nu se urmi din loc. Îl privea.
+— Tată, spuse încet, tu nu te duci ?
+— Unde să mă duc ?
+— Pe șantier. E ger mare. Se prăpădește betonul.
+Nenea Tudor s-a dus în locul tău.
+— Treaba lui. Eu nu l-am trimis.
+Omul se trânti greoi pe pat.
+— Culcă-te ! spuse el încă o dată.
+— Ce om e nea Tudor, spuse Matei ca pentru sine.
+El ar sta acolo o sută de ani, o mie de ani... Și-i înțelege și pe băieți când se fac mari...
+— Bați cîmpii ! Culcă-te ! Și să nu te mai prind noaptea pe șantier, auzi ?
+Matei nu se mișca din prag. Îl podidi fără veste plinsul. Un plîns întretăiat de suspine, ca pe vremea când era băiat mic și-l durea ceva tare, tare de tot.
+— De ce plângi ?
+— Mi-e rușine, spuse băiatul și cu pumnii strânși lîngă buze ieși din bucătărie.
+Și multă vreme, Anghel Oprea ascultă, cu ochii deschiși în întuneric, holotele copilului din odaia alăturată.
+Într-un târziu, ușa scîrți încet. În întuneric nu desluși obrazul copilului, dar vorbele i le auzi tăiate de suspine :
+— Poți să mă bați... auzi... poți să mă gonești... să mă spui la școală... Dar eu... în fiecare noapte o să
+
+101
+
+
+---
+
+<!-- PAGE 104 -->
+stau cu nenea Tudor pe șantier... în fiecare noapte...
+Pînă am să mor de somn...
+
+Anghel Oprea intră cu fereală, să nu trezească co-pilul. Era trecut de miezul nopții. În casă era liniște. Stătu o clipă locului să-și descheie haina. Abia atunci simți că liniștea din odaie avea ceva ciudat; nu se auzea nici măcar respirația băiatului. Nici măcar respirația...
+Se repezi la lumină și-o aprinse : patul era gol.
+Rămase cu mâna pe comutator, nemiscat, privind în tăcere patul în care nu dormea nimeni.
+
+Matei îl văzu pe taică-său abia când acesta ajunse lîngă peretele cofrajului pe care era așezat.
+— Ce cauți aici ? E ceasul unu. La ora asta trebuie să dormi.
+Băiatul îl înfruntă nemiscat.
+— Stau cu nenea Tudor.
+Omul îi puse mâna pe umăr cu blîndețe.
+— Du-te, Matei. Uite, mori de somn.
+În clipa aceea, Tudor Comnarul trecu pe lîngă ei cu un vraf de planuri în mână. Se opri întii mirat, apoi se încrunță.
+
+102
+
+
+---
+
+<!-- PAGE 105 -->
+— Dacă-ai băut, mai bine pleacă, Anghele !
+— N-am băut, răspunse Anghel Oprea încet. Ia-l pe Matei și duceți-vă. Ți-o fi ajungând de atâtea nopți.
+Tudor Comnaru stătu o clipă în cumpănă. Apoi se hotărî. Îi întinse planurile.
+— Strânge echipa. Mai rămân și eu să chibzuim. Sint minus 20 de grade. Poate ar fi mai bine să întrerupem turnarea...
+— De ce s-o întrerupe? Noi doi am mai turnat beton pe geruri de-astea. O să-l turnăm și acum.
+„,Ce fel de ger ?“ se gândi Matei cu un fel de buimăceală în minte. Lui i se făcuse dintr-o dată cald, și inima îi bătea tare, tare. Se ridică și porni spre ieșire, încheindu-și gulerul paltonului.
+— Ce necăjit a fost ! spuse Tudor Comnaru, privind în urma lui. De el mi-a fost mai grija ca de beton. I se cuibărise frigul în inimă.
+— Știu! Anghel Oprea își șterse ninsoarea topită de pe obraz. Acum s-a sfârșit ! Hai să ne vedem de treabă.
+Matei păsea anevoie peste nămeții înalți. Îi era cald și i se făcuse dintr-o dată somn : „N-am să mă culc, își spuse fericit. Am să-l aștept pe tata. O să fac rînduială în casă, o să aprind focul, o să pun de ceai, o să întâț patul... și o să-l aștept !“
+Ajunse acasă, se dezbrăcă și se apucă să schimbe as-ternutul. Și fără veste, teama îl cuprinse din nou : mîine, tatăl o să se trezească, o să se așeze pe marginea patu-lui și privirea o să i se oprească iarăși pe sertarul în care ținea mama batistele. Și atunci ?
+Atunci... atunci el o să se ducă fără teamă și o să deschidă sertarul. O să spună : „Vrei o batistă curată,
+103
+
+
+---
+
+<!-- PAGE 106 -->
+tată? Acum eu am grijă de batiste, să știi !“ Surîse co-pilărește și-și aplecă obrazul pe pernă să încerce dacă-i de-ajuns de moale. Și după câteva clipe dormea. Dor-me-a adînc și liniștit.
+
+1956
+
+
+---
+
+<!-- PAGE 107 -->
+porumbelii
+
+
+![Illustration on page 107](3 Doiniș,Sanda - Loteria_ocr_figures/page-107.png)
+
+---
+
+<!-- PAGE 108 -->
+
+
+
+---
+
+<!-- PAGE 109 -->
+După cum stătea soarele într-o rînă, pe coasta dea-lului, trecuse vreme bună de cînd se luminase de ziua.
+
+Codruș sări iute din pat. Își trase degrabă cămaşa peste cap, bombănind. Dacă nu i-aș fi spus, aș mai zice. Dar am rugat-o aseară : Scoală-mă, mamă, în zori că am treabă. Și acum, poftim ! Ce-o să zică Florin ? O să-mi spună : fără cuvînt te-am știut, fără cuvînt ai rămas.
+
+Într-adevăr, parcă era un făcut. De cînd îi adusese nenea Mitu porumbei i, n-avusese parte să-i arate lui Florin. Chiar în seara cînd venise nenea Mitu, Florin plecase la mătușă-sa, la Rimnic, pentru o lună. Marțea trecută, cînd se întorsese, Codruș îi povestise despre porumbei : ,,Nici nu-ți dă prin gînd ce fel de porumbei ! (Florin ridicase din umeri, semn că într-adevăr, nici nu-i dădea prin gînd). Călători, mă, ai mai auzit tu așa ceva ? (Florin ridicase iar din umeri, semn că nu mai auzise). Mâine ne întîlnim în marginea păduricii. Vin cu porumbei și-i învățăm să ne ducă scrisori unul altuia. (Florin din nou ridicase din umeri vînd să spună că nu-i nici o nevoie să-și trimită scrisori : ei erau doar vecini ; dar văzând bucuria lui Codruș, tăcuse).
+
+Ei, dar zău, parcă era un făcut. Miercuri, pe Codruș îl luase taică-său la oraș. Joi se dusese la rotar în satul vecin să repare cărura. Vineri mai c-a-va nu și nu, că să le dea o mînă de ajutor la a doua prașilă. Vorba ei : ,,Dacă-i puțin porumbul, barem să crească mai acată-
+
+107
+
+
+---
+
+<!-- PAGE 110 -->
+rii”. Îar Florin, în fiecare zi, cu gura pe el : „N-ai cu-vînt, asta e !“
+In ajun îl așteptase-n porțiță să vină de la praziță. Și i-o spusese, verde, de la obraz : „Mâine-i simbătă, bagă de seamă. Dacă nu vii cu porumbei, apoi... mai găsesc eu cu cine să mă joc în sat. Mâine să fii OM de cu-vînt: În zori, cu porumbei, la marginea păduricii“.
+Și acum, poftim, mama uitase să-l trezească.
+De ciudă, vrând să se spele, răsturnă cofäiesul cu apă pe podele. Luă o treantă și începu să șteargă scînduriile apăsat. Oricum, nu se cade să vadă mama că ai făcut lăcăraie în singura odaie cu dușumele din casă. Cît ai fi de supărat ! Deschise fereastra ca să stoarcă cîrpa. Tocmai atunci îl văzu pe taică-să coborind scara de la pod, cu o strachină-n mînă. „Iacă taica, tare-i bun — se bucură Codruș. Le-a dus de mâncare porumbeilor“. Întins cîrpa pe prichiciul ferestrei la uscat. Scoase din trăistuță două foi de hîrtie și un creion, le viri în buzunar, și o zbughii afară. Dar când dădu colțul prispei se opri : scara de la șopron era luată și ușița de la gura podului inchisă cu lacătul. Asta mai lipsea ! Pînă o găsi scara, pînă o lua cheia din bucătăria de vară, iar o să întîrzie. Și Florin așteaptă.
+Intră în bucătărie valvritej :
+— Vezi, mamă, ai uitat să mă trezești. Ți-am spus că... Se întrerupe, uitându-se mirat la maică-sa, care tocmai ștergea masa. Pe cuptor, câteva străchini nespălate, iar pe jos mucuri ; mucuri de țigari.
+— A fost cineva la noi aseară după ce m-am culcat eu ? întrebă Codruș.
+— Nimeni. Cine să fie ? îi răspunse maică-sa fre-cînd mai departe masa.
+108
+
+
+---
+
+<!-- PAGE 111 -->
+Codruș privi încă o dată mucurile de pe jos, dădu să mai întrebe ceva, dar își aminti îndată de Florin care aștepta.  
+— Dă-mi cheia de la pod. Nu-ș ce l-o fi găsit pe taica să încuie. Mă duc la porumbei.  
+— Azi nu-ți dă tata voie la pod.  
+— Nu-mi dă ? Lui Codruș nu-i venea să-și creadă urechilor. Și de ce nu-mi dă ?  
+Maică-sa își feri privirea într-o parte :  
+— Am pus niște pînză nălbită la uscat. Cică umbli cu porumbii și-o năclăiești toată.  
+— Iacă tronc ! De ciudă, Codruș bătu cu piciorul în pământ. Altă dată n-a mai fost pînză-n pod ? Am năclăit-o ? Hai, mamă, dă-mi cheia, te rog.  
+— Nu mai tropăi ca un cal, că tot aia e ! se necăji maică-sa. Ți-am spus doar că nu e voie. Și pe urmă, taica a luat cheia cu el, și a plecat în sat. Hai, du-te și vezi-ți de joacă.  
+Codruș simți că-l podidesc lacrimile. Un lucru-l știa de mult : taică-sau spunea rar : ,,Nu e voie“. Dar cînd spunea... Cu bărbaia în piept ieși din bucătărie. Sări zăplazul care despărțea curtea de livezile mărunte, unite între ele, a lor și a părinților lui Florin (,,Livezi !? Iaca niște petice de pământ acolo, cu zece pomi piper-niciți și de soi prost,” spunea taică-sau la necaz). Mergea încet. Acum la ce să se mai grăbească ? Florin tot o să sară cu gura pe el că nu-i de cuvînt, că-i sucită, că-i învîrtită... Și ce-o fi toată povestea asta cu podul ? Doar n-o să creadă el bazaconia cu pinza. Și-apoi stră-chinile ? Masa nestrișnă ? Mucurile de țigări ? O văzuse cu ochii lui pe maică-sa spălind vasele seara, după ce  
+109
+
+
+---
+
+<!-- PAGE 112 -->
+mîncaseră. Iar taică-său, de cînd îl știa, tutun nu pusesese în gură. Aseară, cînd se culcaseră cu toții, maica-sa măturase lună prin bucătărie ; ba chiar spuse : „Să-mi strîngi niște bălegar, Codruș, și să-mi fac chirpici, că iar trebuie să lipesc pe jos“.
+
+Încreți sprîncenele a mirare : „Dacă-a fost cineva la noi, de ce nu spune mama ? Ce ? Parcă-i păcatul lui Dumnezeu să-ți între cineva în casă ?
+
+Și-apoi la ei veneau deseori oaspeti. Taică-său lucrase de prin 1934 pînă în 1936 la fabrică, la oraș. Acum se împlinise anul de cînd plecase de acolo, pentru că — vorba lui — „m-au dat în brînci, că cică prea le dam peste nas la ăia mari“. Și cum satul lor nu era prea departe de barieră, uneori se mai abăteau seara pe la ei muncitori de la fabrică. Pe unii — cum era nenea Mitu, îi cunoștea și el. Pe alții nu. Veneau, îmbucau cite ceva — ce se nimerea prin casă — vorbeau de una de alta... Mai totdeauna, el se culca și-i lăsa tăifăsuind la bucătărie în jurul mesei. Dacă-l întreba a doua zi pe taică-său cine a fost cutare sau cutare, acesta încruntă din sprîncene și-i răspundea intr-o doară : „Un cumătrut de la oraș. Da' tu să nu bați toba, că nu-mi place să-mi ție satul socoteala cine-mi intră-n casă“.
+
+Da' una-i să bați toba, și alta e să păstrezi o taină. Lui Codruș îi fulgeră un gând prin minte. „Poate că...
+
+Tocmai atunci îl zări pe Florin făcîndu-i semn din marginea păduricii. Grăbi pasul.
+— Unde-s porumbeii ? îl întîmpină Florin.
+— Nu i-am adus.
+— Nu i-ai adus ? Florin se propti, înfigind bine cilciile în pămînt, semn că se mîniase strașnic. Vii la 110
+
+
+---
+
+<!-- PAGE 113 -->
+ceasul ăsta, agale, parcă te duci la biserică. Şi vii fără porumbei. Da’cînd te aude omul, dai cu gura că eşi de cuvînt.
+
+— A luat tata cheia de la pod. N-am avut cum să-i scot de acolo.
+
+— Ce cheie ? Ce pod ? Ai zis că-i aduci azi ?
+
+— Am, zis.
+
+— Dacă ai zis, unde sînt ? Sau poate nici n-ai porumbei şi te lauzi ca Tudoraş-Coconaş.
+
+Asta era prea de tot ! Să-l asemuiască pe el cu Tudoraş-Coconaş.
+
+— Nu-i adevărat. Am. Şi am vrut să-i aduc. Uite ! Viri mîna-n buzunar şi scoase creionul şi hîrtia. Am vrut să scriu biletele, ca să-i învăţăm să ducă poşta.
+
+Vei bine că am porumbei.
+
+— Dacă ai, unde-s ?
+
+— În pod, ți-am spus. Mă jur pe ce vrei tu. Da’ a luat tata cheia.
+
+Florin se propti şi mai bine în cîlcii.
+
+— Minti. Cînd a mai încuiat taică-tău podul de tine ? Eu cu mincinoşii nu mă joc. Mai sînt şi alţi băieţi în sat, ehei... Şi întorcîndu-i spatele, o apucă pe cărăruie spre sat. Codruş făcu un pas după el :
+
+— Florine, stai să-ți spun...
+
+Celălalt se întoarse batjocitor.
+
+— Ce mai vrei ?
+
+— Nimic. Du-te şi te joacă cu băieţii ailalţi.
+
+Se aşează necăjit la rădăcina unui pom. Avusese de gînd să-i spună : ,,Florine, degeaba te superi, n-am mințit. Dar cred că în pod...“ Nu. Mai bine să nu-i spună.
+
+111
+
+
+---
+
+<!-- PAGE 114 -->
+Dacă maică-sa spunea că n-a fost nimeni la ei, poate că intr-adevăr nu fusesese nimeni.
+* * *
+Mai că-sa îl lua în primire de la ușă :
+— Pe unde ai bătut coclaurile toată ziulica ? Nici la amiază nu mi-ai venit.
+— M-am jucat. Am fost la Tudoraș-Coconaș și m-am jucat cu el.
+— La Tudoraș-Coconaș ? Da’ de cînd v-ați făcut așa prieteni la toartă, tu și cu băiatul primareului ?
+— Eu nu-s prieten cu el. L-am întilnit pe uliță. Era cu taică-său. Cucă : Hai, Codruș, la mine. Am un tren. Merge singur. Ne jucăm cu el. Mi-a dat și demîncare la masă, primăreasa.
+— Aha ! Mai că-sa se încruntă ușor, privindu-l cu luare aminte. Acuși fiți mai e foame ? E niște borș de la amiază. Să-ți dau ?
+— Dă-mi.
+Codruș privea mirat la maică-sa, în timp ce-i turna borșul în strachină. „Ce-o fi cu mama ? Vorbește cu mine, da parcă-i e gîndul la altceva“.
+— Te-a întrebat ceva ?
+Codruș tresări. Îl furaseră gîndurile :
+— Cine ?
+— Ei, cine ? Tudoraș-Coconaș.
+— Despre ce să mă întrebe ?
+— Despre noi. Așa. Despre tata... despre mine...
+— Nu. Nu m-a întrebat nimic. Adică... ba da. Zicea că dacă știu cine mai vine pe la noi ?... Și dacă a venit vreun om aseară sau alaltăieri seară. Eu am zis că nu !
+112
+
+
+---
+
+<!-- PAGE 115 -->
+Codruș o iscodi pe maică-sa cu o privire furișă.  
+— Că doar n-a venit nimeni, nu-i așa ?  
+— Nimeni. Cine să vie ? Mănîncă-ți borșul și du-te la culcare, că-i tîrziu.  
+
+O vreme, Codruș mînca în tăcere, cu privirea ațintită în fundul străchinii. Apoi își luă inima în dinți.  
+— Maică, taica s-a luat de tutun ?  
+— Ce-ți veni să mă întrebi ?  
+— Așa ! Întreb și eu.  
+Maică-sa tăcu o vreme. Cînd îi răspunse parcă avea alt glas.  
+— Ei, omul la necaz mai trage citeodată 'din țigară, cînd îl apucă. Iar tu, lasă tutunul tătii și mănîncă mai repede.  
+
+Codruș era de mult în pat cînd îl auzi pe taică-său întorcîndu-se. Încearcă să doarmă, numai că somnul nu se lipse de el. Ce mai zi blestemată, doamne, ce mai zi ! Podul încuiat, porumbei nemîncati înăuntru. Florin supărât pe el, mama vorbind în dodii, tata plecat toată ziua de acasă. Ce zi anapoda ! Ciuli urechea. Din bucătărie se auzeau șoapte.  
+— S-a culcat băiatul ?  
+— Da.  
+— De porumbei n-a întrebat ?  
+— Cum să nu-n trebe ? Nu știi că-i prăpădit după ei ? Da' i-am spus că cheia e la tine.  
+— Lui i-ai dus de mâncare în pod ?  
+— I-am dus după ce s-a inserat. Zicea că să urci să vorbești cu el ; cică scrisorile trebuie duse chiar astă-seară.  
+— Astă-seară ?  
+
+8  
+113
+
+
+---
+
+<!-- PAGE 116 -->
+— Da. Şi bine zice. Ascunzătoarea asta nu-i de nă-dejde. Toți din sat sunt cu ochii pe noi, de când cu fabrica. Azi a și început să-i dea tircoale lui Codruș, scliftositul ăla de băiat al primarului, și să-l iscodească ce și cum.
+
+Lui Codruș îi bătea inima tare, tare, parcă stă să o ia râzna afară din coșul pieptului. Va să zică era cum își închipuise el. În bucătărie, taică-său se plimba de colo-colo; îi auzea pașii bocănind infundat pe podeaua de lut.
+
+— Așa e, are dreptate tovarășul Necului! Numele i se înfipse în minte lui Codruș ca o săgeată. Ascunzătoarea asta trebuie schimbată. Du-te de te-mbracă. O să ducem chiar în noaptea asta scrisorile.
+
+— Și băiatul?
+
+— Băiatul doarme. Până-n zori ne întoarcem. Îmbrați-te că nu e vreme de pierdut. Eu mă duc să vorbesc cu el.
+
+O vreme Codruș nu mai auzi nimic decât foșnetele din odaia alăturată, în care, pesemne, maica-sa își schimba hainele. Apoi ușa de la bucătărie pocni din nou.
+
+— Iată-le — spuse taică-său încet. Tu duci asta, eu cealaltă. Și mâine, înainte de se luminează...
+
+Ușa de la bucătărie tăie scurt firul vorbelor. „Pesemne mâine-n zori — gândi Codruș — tovarășul Necului o să plece“... Tovarășul Necului. Nu-l văzuse nici-odată, dar îl știa din vorbele lui taică-său de mult.
+
+„Tovarășul Necului — spunea el cu ani în urmă, când lucra în fabrică — e un om și jumătate. El pricepe necazul omului, durerea lui și nu stă cu mâinile-n sine cînd e vorba să ajute pe vreunul din atelier. De aia îl iubesc
+
+114
+
+
+---
+
+<!-- PAGE 117 -->
+muncitorii. Îl îndrăgesc și patronii, nu-i vorbă: l-ar sugruma de drag ce li-i. „Mai târziu, în vremea grevei, taică-său povestea citodată: „Oho! Dacă n-ar fi comuniștii! Tovarășul Necului și cu ceilalți! Că mai sint și de ăia care în loc să-și facă singuri dreptate, așteaptă să le-o facă al de sus... Dar când vorbește tovarășul Necului, lemn să fii și tot întelegi că dacă se cheamă că ești om, apoi ca oamenii adevărați, cu fruntea sus trebuie să trăiescți.“
+
+Iar în urmă cu un an, în 1936, când pe taică-său îl dăduseră afară de la fabrică, Codruș nu-l auzise rostind un singur cuvânt despre soarta lui. Intrase în casă și spusese plin de tristețe: „Cu noi ce-o fi o fi, cum am dus-o cu sărăcia pînă acum, om mai zgîria pămîntul și-om mai duce-o și de-acuncolo. Dar pe tovarășul Necului i-au arestat. Pe el și pe încă vreo șase. Tot oameni unul și unul...“
+
+Așa, încetul cu încetul, Codruș se deprinsese să-l socotească pe tovarășul Necului ca pe unul de-ai lor. Și fără să știe cum, prinsese a-i iubi, așa cum îl iubea taică-său. Odată întrebase: „Tovarășul Necului are copii? De ce întrebi?” îl iscodise taică-său. Codruș îi arătase o morișcă meșterită de el din tot soiul de coceni și nuiele. „I-aș da jucăria asta. Sau altceva, ce i-ar place lui de la noi din ogrădă. Poate că ar veni să ia jucăria și l-aș vedea și eu la chip!” Taică-său oftase în tăcere și tot în tăcere îl mîngâiase pe Codruș peste chica zburlită.
+
+Codruș închise ochii de atâtea gânduri care-i roiau în cap. El, tovarășul Necului, pe care taică-său îl iubea ca pe un frate, se ascundea la ei în pod. De asta nu putuse intra la... La gîndul ăsta sări din pat ca ars. „Porum-
+
+8* 
+
+115
+
+
+---
+
+<!-- PAGE 118 -->
+beii!! Dacă-i tovarășul Necului acolo, el o să-l înțeleagă. El e bun, așa spune tata. O să-i spună că stau nemîn-catî de ieri...“
+Se îmbrăcă la repe-zeală. Luă din bucătărie o strachină, fără-miță în ea un rest de mămăligă rece și ieși în curte. Aduse scara și o propti la gura podului. Urcă cu băgare de seamă, dar când ajunse sus, se opri înciu-
+116.
+
+
+![Illustration on page 118](3 Doiniș,Sanda - Loteria_ocr_figures/page-118.png)
+
+---
+
+<!-- PAGE 119 -->
+dat; ușa podului era încuiată. Puse strachina pe streasa șopronului și zgirie încetisor cu unghia lemnul ușii.  
+— Nene!  
+Tăcere.  
+— Tovarășe! Nene. Sint eu, Codruș, băiatul lui taica. Deschide-mi nițel!  
+Tăcere.  
+
+„Ce prost sînt — se dojeni singur Codruș. Cum o să-mi deschidă? Ușa e încuiată pe dinafară cu lacătul. Cheia e la taica“. Zgirie iar lemnul ușii încetisor și i se păru că dinăuntru fî răspunde un foșnet. Atunci începu să miște încoace și încolo unul din belciuge.  
+
+— Nene! Înăuntru sînt porumbei mei. De la nenea Mitu. Dumneata îl cunoști pe nenea Mitu că-i tot de la făbrică. Le-am duminicat mămăligă, că n-au mîncat de ieri. Uite, las strachina pe streasina. Slăbesc belciugul, ca să poți deschide nițel ușa, să iei strachina. Spune, nene, le dai?  
+Tăcere. Doar foșnetul acela care putea să fie vîntul, dar care — Codruș știa — nu era vîntul, nu.  
+
+Coborî iute. Cînd vrui să ia scara, se opri împietrit: din colțul prispei, Florin fii facea semne, îndemnîndu-l cu mîna la gură să nu facă zgomot.  
+— Codruș! Codruș!  
+— Ce-i?  
+Florin se strecură tipil pînă la el, în umbra casei.  
+— Ți-am bătut în geam. Unde ai fost?  
+— La porumbei. Ce vrei?  
+— Îți spun îndată. Tudoraș-Coconaș e la noi.  
+— La voi? Acum noaptea? E trecut de zece!  
+— Da. A venit întîi singur să mă întrebe dacă n-am  
+
+117
+
+
+---
+
+<!-- PAGE 120 -->
+văzut un om străin pe la voi. Cică eu știu, că mă joc toată vremea la voi în ogrădă.
+Codruș amuți.
+— Pe urmă a venit și taică-său, primarul. A vorbit cu tata. Zice că nu și nu, să-i spună ce-a văzut pe la voi zilele acestea. Caută pe cineva. Cu jandarmii.
+— Cu jandarmii?! Codruș se trase mai adînc în umbra casei. Cu jandarmii zici?
+— Mă jur pe ce vrei! I-am văzut cu ochii mei.
+— Pe cine?
+— Pe jandarmi. Sînt în uliță, stau pe podet. Tata mi-a făcut semn să vă dau de vestea. Hai să-l trezim pe taică-tău. Repede, ce stai?
+— Taica nu e acasă, Florine. Nici maica.
+Florin îl apucă de mînă:
+— Au fugit? Pe ei fi cauta jandarmii? Atunci nu-i nici o primejdie.
+Codruș furisă o privire spre gura podului: „Ba e. E primejdie. E primejdie mare pentru tata și pentru... altcineva... De atita încordare, Codruș gifiia de parcă urcase un deal în goană. Florine, mai ești supărat pe mine? Pentru porumbei, știi...
+— Nu mai sînt. Dacă te duci tu în faptul noptii în pod, pesemne că ai cu adevărat porumbei acolo. Te cunosc eu.
+Dar Codruș nu-l asculta. Privea spre poartă, unde se zăreau câteva umbre mișcîndu-se pe uliță.
+— Florine!
+— Ce? Ce-i cu tine?
+— În pod e... e cineva. Cineva care... am să-ți povestesc altădată. Întelegi, taica, maica nu-s aici. Și cel
+118
+
+
+---
+
+<!-- PAGE 121 -->
+de acolo trebuie să scape. Pe el îl caută jandarmii. Mă ajuti?
+
+Florin tăcu cu privirea ațintită spre poarta unde se auzeau șoape infundate. Apoi spuse încet :
+— Da.
+— Atunci, uite : trage-te încet spre fundul curții, spre livada voastră. Stai pitulat sub zăplaz. Vin și eu. Când m-oi auzi șuierînd, sări zăplazul în livadă și fugi spre pădurice. Eu am să fac la fel, în partea cealaltă. Au să creadă că fuge cineva și au să se ia după noi. Auzi?
+— Și dacă ne prind?
+— Nu-i nimic. O să spunem că ne-am jucat. Noi simtem copii... Noua n-are ce să ni se întîmple. Dar acolo e un om... și pe el, poate chiar...
+Fără o vorbă, Florin se trase în fundul curții, de-a lungul gardului. Dintr-o săritură, Codruș fu sus, pe scară : strachina nu mai era pe streșină. Va să zică, cineva deschisese uşa.
+— Nene — spuse el repede, cu capul virît în gura podului — trebuie să fugi. Taica nu-i acasă. Au venit jandarmii. Au încunjurat curtea. Florin și cu mine o să-i momim după noi. Să te uiti prin gura podului. E lună, se vede. Când s-or lua după noi, să fugi. Codruș auzi poarta clămpănind, scuturată cu pumnii. Fugi înspre uliță și ia-o peste câmp, spre riu. Noi îi momim în partea ailaltă. Nene, să faci cum îți spun. Eu sunt Codruș. Te știu. Crede-mă. Știi și cum te cheamă... Tovarășul Neculai...
+Pe prispă se auzeau acum tropăituri infundate. Codruș sări de la mijlocul scării și o luă la goană spre fundul curții. Auzi în urmă o voce strigînd :
+
+119
+
+
+---
+
+<!-- PAGE 122a -->
+— Hei! Hei! Stai. Apoi alte glasuri, din c
+mai multe. Încelecă zăplazul și șuieră ascuțit. M
+vreme să vadă umbra lui Florin țișnind peste
+în partea cealaltă și se afundă în întuneric, pr
+mișorii livezii. În urmă se iscă o hârmălaie, ca
+
+— Stai! Stai că trag! Stai! Și chiar în clipa
+începură să șuieră gloanțele. I se strînse inima
+La asta nu se gândise. Își încordă puterile ale
+mai iute. Dar în urmă, zgomotele se apropiau
+tele deasemenea. „Mai repede, mai repede !“
+
+120
+
+
+![Illustration on page 122a](3 Doiniș,Sanda - Loteria_ocr_figures/page-122a.png)
+
+---
+
+<!-- PAGE 122b -->
+țișni afară din livadă, apucând spre pădu- rice. Simți o arsură ca o lamă de cuțit, frigîndu-i brațul, dar nu rări pasul decît o clipă. Nici nu-și dădu seama că-l nime- rise un glonte. Crezu că s-a rănit de vreo cracă mai ascuțită. Dar în clipa aceea nu se putea gîndi decît la un lucru : că trebuie să alerge. Repede. ,,Dacă mă opresc, dacă răresc pasul, totul e degeaba. N-o să aibă timp să fugă. Trebuie să-i încurc în pădurice !“ Și incor- dîndu-și mușchii ca într-un arc, țișni mai departe în goană.
+
+— Fără tine, mi-ar fi fost frică ! spuse Codruș încet, apucând mîna lui Florin.
+Stăteau amîndoi lipiți de trunchiul pomului, pîndind de-aproape un ceas orice zgomot din preajmă.
+— Nu se mai aude nimic — răsuflă ușurat Florin.
+Nimic. Și ce te tot lauși cu frica ? Cînd te-am întîlnit, abia te mai țineai pe picioare, dar de gonit, goneai ca un ogar. Te mai doare ?
+
+121
+
+e în ce
+Mai avu
+zăplaz
+ntre po-
+la foc.
+aceea,
+le frică.
+rgînd și
+strigă Codruș
+
+
+![Illustration on page 122b](3 Doiniș,Sanda - Loteria_ocr_figures/page-122b.png)
+
+---
+
+<!-- PAGE 123 -->
+— Nu! spuse Codruș. Nu mai simt. Mi-a întepenit tot brațul. Da nu-i nimic. Mă duce taica mîine la oraș.
+E bine așa cum m-ai legat!
+Drept răspuns, Florin îl trase jos ajutîndu-i să se așeze.
+— Stai aici.
+O vreme tăcură iarăși, ciulind urechea spre sat.
+— A avut vreme să fugă. Sint sigur! Sînt sigur!
+șopti înt-un tîrziu Codruș. Știi... el le-a dat de mîncare la porumbei. Chiar în noaptea asta. L-am rugat și le-a dat. Ce om bun! Numai de un lucru îmi pare rău...
+— Ce? Îl iscodi Florin.
+— El e... cineva... un om cum nu s-a mai văzut pe lume. Eu zic că... dar ce zic eu? Iacă, taica îl iubește ca pe un frate. Iar eu... asta-mi pare rău... nici măcar la față nu l-am văzut. Știi doar că...
+Tăcu, amintindu-și că lui taică-său nu-i plac gura-livii. Și numai în gînd își isprăvi vorba : „...doar că-l cheamă Neculai, și că-i comunist".
+1955
+
+
+---
+
+<!-- PAGE 124 -->
+dragă fănuță
+
+
+![Illustration on page 124](3 Doiniș,Sanda - Loteria_ocr_figures/page-124.png)
+
+---
+
+<!-- PAGE 125 -->
+
+
+
+---
+
+<!-- PAGE 126 -->
+Să nu crezi cumva că nu știu ce gîndești. Îți zici pesemne : Ce mai prieten ! Se lăuda c-o să scrie în fiecare săptămână și când colo o telegramă : „Am sosit bine. Urmează scrisoare“. Și cu asta, basta ! Știu, Fănuță, că așa te gîndești și poate nici nu mai vrei să fii prieten cu mine. Mă, da' n-ai dreptate, crede-mă ! Nici nu-ți poți închipui câte s-au întâmplat din dimineața ceea când ne-am despărțit și camionul a pornit hurducîndu-ne spre noua noastră „reședință“. (Așa zice mama și tata se prăpădește de rîs.)
+
+Am călătorit opt ceasuri încheiate și în sfîrșit am ajuns, morti de oboseală. Ne dureau toate oasele de atita hurducătură ; am fi adormit și cu capul pe pietrele drumului dacă ne-am fi așezat acolo. Dar ți-ai găsit să ne lase mama să ne odihnim ! Descarcă lucrurile. Du-le în casă. Fugi după var. Stingi-l. Văruiește. Freacă podelele. Vopsește ușile și geamurile. Despachetează. Lustruiește, drege, spală, șterge. Așează toate lucrurile la locul lor. Puteam s-o las pe mama singură, cu toate astea pe cap ? Spune și tu ? Că tata, de cum și-a schimbat hainele, fuga la S.M.T. să-și ia serviciul în primire. Iar mama ofta c-o auzeai din capul satului : „Să fi avut o fată cel puțin. Să-mi fie de ajutor, că n-am decît două mîini și nu le prididesc pe toate !“
+
+Ce era să-i răspund ? Mi-am suflecăt minecile și am făcut atita treabă, încit după trei zile, mama povestea
+
+125
+
+
+---
+
+<!-- PAGE 127 -->
+cui voia s-o asculte că un băiat face col puțin cit o fată la casa omului.
+Ei, și după asta, hai la școală !
+Ușor de zis ! Da’ mie mi se strîngea inima cînd mă gîndeam la școală. Îmi așezam cărțile și caietele în ghiozdan și-mi aminteam de vorbele tale, Fănuță : ,,Stai, Andrei, să termini anul cu noi. Cine știe ce-o fi ACOLO !“
+Avea dreptate Fănuță ! îmi spuneam. Ce fel de clasă a VI-a o fi aici ? Ce fel de băieți ? Bunî ? Răi ? Prietenoși ?
+M-am rugat de tata toată seara să meargă cu mine a doua zi la școală, dar degeaba, nu l-am înduplecat. Ba că are treabă pînă peste cap, ba că S.M.T.-ul nu-i ca uzina unde lucra el și unde toate erau ,,bine organizate, ba că aici toate sînt alandala de pe vremea fostului director... ce să-ți mai spun ! N-are timp și pace bună. Cît despre mama, altă poveste : că aici are casă mai grea și treabă mai multă, de, nu-i ,,confort“ ca la oraș, că sint băiat mare și să mă descurs singur, că mă duc în clasa a VI-a și nu la grădiniță... Bine a zis cine a zis (mi se pare Gogu, cînd l-a bătut taică-său pentru că a spart geamul ăla mare din față) că părinții nu înțeleg sufletul copiilor !
+Ce să fac ? Mi-am luat inima în dinți și m-am dus la școală. Am intrat în clasă, am spus bună ziua, am întrebat unde e un loc liber, m-am așezat și am așteptat. Și mă jur pe ce vrei, dragă Fănuță, că și azi aș mai fi așteptat să se găsească cineva care să mă întrebe ce-i cu mine, cine sînt și ce caut acolo, dacă nu venea tovarășul director. El mi-a dat bună ziua, a anunțat că m-am transferat de la oraș la școala din sat, că sint un elev
+126
+
+
+---
+
+<!-- PAGE 128 -->
+silitor și am note numai de patru și cinci; apoi ș-i-a luat rămas bun și a plecat. În urma lui, băieții au început să mă privească cu coada ochiului pe furiș și să șușotească între ei. Îmi venea să intru în pământ de ciudă, nu alta! Habar n-aveam ce au cu mine, că doar nu le făcusem nimic. Am încercat să intru în vorbă cu vecinul meu de bancă, un băiat oacheș, înalt ca mine, și mereu încruntat. I se rupsese vîrful la creion și se chinuia să-l ascută cu un fel de briceag așa de tocit, că nici brînză n-ai fi putut tăia cu el, dar'mite lemn.
+
+— Briceagul ăsta nu-i bun de nimic — i-am zis. Să-ți dau o ascuțitoare.
+
+O dată s-a făcut roșu ca focul și mi-a întors vorba :
+
+— O fi vreo ascuțitoare de la oraș, mai pricopsită...
+
+Eu ce să zic? Am tăcut. Am tăcut o zi. Am tăcut două. Am tăcut o săptămână încheiată. Veneam la școală. Mă asculta la lecție, răspundeam. Nu mă asculta, îmi vedeam de treabă. În recreație îmi luam o carte și citeam. Pe urmă mă întoarcem acasă, îmi făceam lecturile și iar citeam. Că nici acasă nu prea aveam cu cine să schimb o vorbă. Tata alerga de dimineața pînă seara. Și seara cînd venea, o ținea una și bună : campanie de primăvară, reparării neterminate la timp, însămîntări. Și a doua zi o lua de la capăt : iar campanii, iar reparării... Cu mama, altă istorie. Tu doar o știi cum era acasă : își vedea de gospodăria ei și atîta tot. Ei, aici nu știu ce i-a venit așa dintr-o dată : că femeile din sat nu știu să-și crească copii, că trebuie făcut un curs, că trebuie mărită creșa gospodăriei de stat, că a văzut ea într-o zi un țînc pe o prispă, că venise o rață și-i ciugulea pâinea din mină, că așa nu mai merge, că trebuie o mină de fier... Ți-ai găsit la mama mină de fier, cînd
+
+127
+
+
+---
+
+<!-- PAGE 129 -->
+ea nici lemne n-are putere să spargă: mă trimit tot pe mine! Dar ferească dumnezeu să-i spui: se face toc ! Bine a zis cine a zis (mi se pare tot Gogu, când cu istoria cu geamul) că părinții sunt mai încăpățânați decât copiii, când le intră ceva în cap. Uite, mamei i-a intrat povestea asta cu creșterea copililor în cap și nici până azi nu i-a mai ieșit. E adevărat, acum creșe ș gospodăriei e de două ori mai mare ; ar putea să încapă în ea nu numai toți ținici din sat dar și bobocii de rață „prost crescuți“.
+
+În vremea asta, eu, parcă aș fi fost singur pe lume, Fânuță dragă. Acasă singur, la școală ca și singur. Mă suceam, mă înviream și numai gânduri negre îmi umblau prin cap. Mi se făcuse dor de tine, de băieți, mai ales de cei din cercul naturaliștilor. Îmi părea rău că nu te asculțasem. Să fi rămas măcar până la sfârșitul anului cu voi. Și nici de scris nu-mi venea să-ți scriu, că mi-era și mie rușine de ce trebuia să-ți spun. Cum să-ți spun ? Cum să-ți explic ? Pentru că, vezi tu, Fânuță, oricât îmi băteam capul, nu înțelegeam ce se întâmplă la școală cu băieții. Cum făceam, cum dregeam tot nu le eram pe plac. Spune și tu : intr-o zi mi-am îmbrăcat cărțile și caietele cu hârtie albastră. Vecinul meu de bancă, cel veșnic încruntat, s-a uitat chioriș și a zis : „Te ți fălos că ai hârtie albastră de la oraș. La noi la cooperativă nu e decât din aia galbenă, de impachetat.“ Într-altă zi am avut dictare, cu cerneală. Am scos din ghiozdan stiloul pe care mi l-ai dăruit tu anul trecut, de ziua mea. Cum scriam, odată mă pomenesc cu un bilețel : „Nu mai fă pe grozavul, orășanule, că tot o să faci purcei pe caiet.“ Ei, ce zici, Fânuță ? Dar cea mai grozavă întîmplare a fost cea de la istorie. Ascultă ! Aveam în ziua
+
+128
+
+
+---
+
+<!-- PAGE 130 -->
+ceea lectia despre Comuna din Paris. Tu îți mai aduci aminte, Fănuță, că cei dintre-șaptea au ținut anul trecut o adunare tematică cu subiectul acesta. Mi-a plăcut așa de mult și atâta l-am bătut pe tata la cap, că mi-a cumpărat, nu știu de unde, o carte despre Comună. O carte cam ferfenițită, dar grozavă. Am citit-o și am răscitit-o. Zău dacă n-o știu pe din afară !
+
+Va să zică, cum îți spuneam, în ziua cea, cum intră tovarășul profesor, hop, îl și scoate la lecție pe vecinul meu de bancă. ,,Oană Gheorghe, trece la tablă !“ (Oană îl cheamă, am uitat să-ți spun). Oană se fisticeste, spune două-trei vorbe, tace, mai spune două-trei vorbe, iar tace... ce mai încolo și încoace, nu învățase nimic. Se întoarce în bancă mai încruntat de cum îi e felul și lecția continuă. O dată aud că mă strigă și pe mine. ,,Andrei Ignat !“ Mă duc la tablă și încep să spun lecția. Eram emoționat... tu mă știi pe mine când e vorba de oral. Așa și în ziua cea. Spun, spun, spun... și mă trezesc că am început să amestec ce am învățat la istorie, cu ce-am citit în cartea de la tata, cu ce-am auzit la adunarea tematică... în sfârșit, o harababură în toată regula. Când îmi dau seama ce fac, mă opresc speriat în mijlocul vorbei.
+
+— Mai departe ! mă îndeamnă tovarășul profesor și-mi zîmbeste foarte mulțumit.
+
+Dacă am văzut așa, iar m-am apucat să povestesc și să spun, să spun... pînă a sunat clopoțelul de ieșire. Tovarășul profesor zîmbea mereu. La sfirșit m-a întrebat de unde știu toate astea. Bucuros că am ieșit cu bine din încurcătură i-am istorisit întâmplarea, așa cum a fost : cu adunarea tematică, cu cartea de la tata. El a dat din cap : ,,Bravo ! Asemenea adunări tematice s-ar
+
+9 — Loteria
+
+129
+
+
+---
+
+<!-- PAGE 131 -->
+putea face și la noi. Atunci nu s-ar mai întîmpla ce s-a întimplat azi“. Și s-a uitat lung la Oană.
+Drept să-ți spun, Fănuță, dacă aș fi știut ce o să pătimesc din pricina asta, nici n-am fi deschis gura la istorie. Cum a ieșit tovarășul profesor din clasă, Oană s-a repezit la mine :
+— Mi-a pus doi. Să știi că mi-a pus doi din pricina ta.
+— Nu-i adevărat ! am strigat. Nu din vina mea. Pentru că n-ai învățat.
+Atîta mi-a trebuit. Oană o ținea una și bună, furios :
+— Ba din pricina ta. Faci pe grozavul, de cînd ai venit ! Vezi doamne, tu ești un deștept ,,de la oraș“ și noi niște proști ,,de la țară“. Am văzut noi ce-ți poate pielea, nas în sus de orășan ce ești !
+Băieții se adunaseră în jur și mă priveau cu niște ochi ! Vedeam bine că erau gata să creadă că între-adevăr sint vinovat pentru douil lui Oană. M-am dus la locul meu, mi-am strîns cărțile la repezeală și-am fugit acasă. M-am închis în odaia mea și am plins de ciudă toată după-amiaza. Și de ce plîngeam, de aia eram mai necăjit. De vreo zece ori m-am apucat să-ți scriu : să-ți spun să mă aștepti la gară că mă întorc la școala noastră. Și tot de atîtea ori am rupt scrisoarea abia începută. Seara am vrut să-i povestesc mamei toată întâmplare. Dar mama m-a repezit cit colo : ,,N-am timp de povești, domnule. Țin mine curs despre alimentația și creșterea copiilor și trebuie să scot notițe, că de cînd am făcut eu școala a trecut ceva apă pe gîrlă“. Poftim ce-am ajuns : mama ține cursuri pentru alții și eu mă perpelesc pe jărâtec. M-a bufnit iar plinsul și am stri-
+130
+
+
+---
+
+<!-- PAGE 132 -->
+gat: (ce-i drept, cam tare :) „Pe mine nu mai vrei să mă crești de loc ?“
+„Lasă prostiile !“ a spus mama și nu mi-a mai dat nici o atenție. Tocmai atunci a intrat tata. Era supărât foc.
+— Te-am auzit, domnule. Strigi la mama ? Frumos îți șade, băiat mare ! Ia-ți mâncarea la tine în odaie și pînă mîine dimineață te poftesc să nu ieși de acolo. Ești pedepsit. Să te înveți minte să nu mai fii obraznic cu mama !
+Ce zici de asta, Fănuță ? De cînd eram un țiinc, (ca aștia pe care îi „creste“ mama) nu m-au mai lovit atîtea nenorociri într-o singură zi. Stăteam în odaia mea, cu fața în pernă și mă rugam sau să-l mute pe tatăl lui Oană la oraș, sau să rămână Oană repetent, sau să rămîn eu repetent, sau să se facă altă școală în sat, să mă transfer acolo, să scap de clasa asta uricioasă. Și cu cit mă rugam mai mult, vedeam că degaabă mă rog. Cum o să-l mute pe tatăl lui Oană la oraș, cînd el e creșător de vite la gospodărie ? Unde să crească vitele, în spațiile verzi? Și de ce să rămîie Oană repetent, cînd el, în general, învață bine, numai în ziua aceea la istorie, a scrîntit-o. Cum ? Habar n-am. Și cum să mai dau ochii cu tata dacă rămîn eu repetent ? Și cum să se facă altă școală în sat, cînd asta, slavă domnului, e mare — abia acu cîțiva ani clădită — de încap în ea nu numai copiii de aici dar și cei dintr-o comună vecină ?
+De atîta amărăciune am început să bat cu pumnii în pernă și să țip : „Nu mai pot ! Nu mai pot ! Nu mai pot !“ Atita mi-a trebuit. M-a auzit tata din bucătărie și mi-a strigat : „Da să fii obraznic cu mama poți, dom-
+
+9*
+131
+
+
+---
+
+<!-- PAGE 133 -->
+nule ?“ Așa că a trebuit să mă liniștesc și să fiu nenorocit în tăcere.
+
+Tirziu, când toți au adormit, am luat o hotărâre. Să mă răzbun ! Să mă răzbun pe toți, pentru toate nedreptățile, pentru toate necazurile. Mai ales pe Oană. Ce bine ar fi să fie Oană un cavaler — mă gândeam — sau un printr ca în povești. Și să aibă o logodnică frumoasă, frumoasă... Și eu să mă arunc pe un cal, să-i răpeasc logodnica, să fug cu ea departe… departe… la vreo doi-trei kilometri de Gospodărie, să mă însor cu ea ! Oană să ne caute, să ne găsească, să mă provoace la duel, și eu să-l înving. Și uite așa, să-l fac de râsul lumii și-al clasei.
+
+Și tot gândindu-mă la astfel de răzbunări, mi-a mai trecut amărăciunea și am adormit.
+
+A doua zi, cum a intrat în clasă, Oană a luat 'un creion și a împărțit banca drept în două. Pe dîra neagră a însirat boabe de porumb, una lîngă alta. Pe urmă mi-a zis :
+
+— Dacă se mișcă vreun bob din loc, înseamnă că ai trecut în partea mea și te bat, auzi ?
+
+I-am întors spatele fără să-i răspund, am luat creionul și am tras eu o linie alături de cealaltă. De-a lungul ei am însirat firimituri din pîinea cu marmeladă pe care mi-a dat-o mama pentru recreație. I-am arătat-o și i-am spus :
+
+— Dacă se mișcă vreo firimitură din loc înseamnă că ai trecut în partea mea și o să mă răzbun, auzi ?
+
+Povestea asta cu împărțitul bâncii s-a petrecut între-o miercuri, îndată după vacanța de primăvară. Începuse să se încălzească binisor și în recreația mare, după ce-am mai aliniat o dată firimiturile de-a lungul „fron-
+
+132
+
+
+---
+
+<!-- PAGE 134 -->
+tieriei“, mi-am luat o carte și am ieșit în curte la soare. M-am așezat pe-o piatră lîngă gard să citesc. Când deodată aud vorbă de partea cealaltă, în uliță. Mă uit printr-o crăpătură și zăresc... pe cine crezi ? Oană, înconjurat de vreo șase băieți din clasă : Gheorghită, Toma, Uță, Alectu, Nicu și un altul pe care îl cheamă ca pe tine : Fănuță. Întâi am crezut că s-au adunat să pună iar ceva la cale împotriva mea și-am început să trag cu urechea. Dar când colo, nici pomenelă de mine. Vorbeau despre roșii, vinete, gospodărie... să te bufnească rîsul, nu alta. Băieți mari și se țin de bucătărie, ca fetele! Trag mai departe cu urechea, și odată înteleg și îmi trece pofta de rîs. E vorba de altceva : o parcelă în capul satului, pe care ei au să cultive un nou soi de roșii și de vinete, cu rodul foarte mare și gustos. Le dă răsaduri de la serea G.A.S.-ului, cică. Niște răsaduri cum nu s-au mai văzut.
+
+— Azi îi miercuri — spunea Oană. Mâine, poimâine și răspoiâmine avem tot timpul să săpăm și să gunoim. Așa că după masă, înainte de asfințit, să fiți toți la parcelă. Asta-i !
+
+Au mai vorbit ce-au vorbit și au plecat. Eu am rămas țintuit locului și nu știam ce să fac. Să sar în sus de bucurie sau să plâng de necaz. Va să zică e un cerc de naturaliști la școala asta. Și tocmai în cercul ăsta e dușmanul meu de moarte, Oană, cu toți prietenii lui. Ce zici, Fănuță ? Am noroc, nu glumă, nu-i așa ?
+
+Am intrat în clasă tare abătut ; degeaba încercam să fiu atent la lecții, că gândul tot la parcelă îmi fugea. Tu știi, Fănuță, ce fel de cerc al naturaliștilor am avut noi la școală. De fapt, cred că era cel mai grozav din țară... ce zic eu, poate chiar din lume. Ți-aduci aminte cum
+
+133
+
+
+---
+
+<!-- PAGE 135 -->
+visam noi doi să ne facem agronomi, și pe urmă profesori-agronomi, și pe urmă savanți-agronomi, și pe urmă ceva și mai ști. Când am plecat, nu ți-am spus — ce să-ți mai spun, că erai tu 'destul de amărît și așa ! — da să știi că de cercul nostru m-am despărțit mai greu decât de orice. Premiul pe care l-am primit anul trecut la concurs, la Palatul Pionierilor, cartea cea despre fauna ecuatorială, am ținut-o tot drumul în mînă, să nu cumva să se rătăcească printre lucrurile învălmașite în camion. Și dacă nu m-aș fi gândit că aici e pământul pe care îl vezi cu ochii, să faci de dimineața pînă seara numai culturi experimentale peste tot, nu m-aș fi îndurat să plec. Și-acum, poftim! Domnul Oană îmi bagă bețe în roate. Mi-o ia înainte. Face el culturile experimentale ! Și pe lîngă toate, mai e și dușmanul meu de moarte. Ei, și ce dacă! Să-i fie de bine! Eu n-am să mă rog de el ! Pun mîna și înființez un cerc de istorie și praf îl fac și pe el și vinetele și roșile alea caraghioase. Și pe urmă, asta e activitate de naturalist? Roșii, vinete ? În loc să transplantezi plante tropicale, să le adaptezi ?
+
+Tot felul de gînduri din astea mi-au umblat prin cap pînă am ajuns acasă. Dar de ce mă prefăceam mai nepăsător, de aia îmi era mai ciudă. Am mâncat fără poftă. M-am foit și m-am răsucit prin odaie fără rost. Și pînă la urmă m-am hotărît. Mai bine mă împac. Le spun ce ști cum, și-i rog să mă primească și pe mine. Le spun că de fapt eu nu sînt așa cum cred ei, că a fost doar o încurcătură cu întâmplarea de la istorie, că sunt un naturalist bun. Și dacă nu m-or crede că mă pricep, îi pun să vă scrie vouă, să se convingă. Iar cu Oană, văd eu ce fac. Poate îi trece supărarea. Îi împrumut cartea despre Comuna din Paris, poate vrea s-o citească.
+
+134
+
+
+---
+
+<!-- PAGE 136 -->
+Dacă nu vrea, rămîinem dușmani numai în bancă, iar pe câmp facem armistițiu. Am citit eu undeva că se poate și așa.  
+Zis și făcut. M-am îmbrăcat fuguța — era aproape ceasul patru — Și am pornit-o spre capul satului. Drumul îl știam, că-i auzisem pe băieți vorbind : trece via gospodăriei, t'ai prin curtea S.M.T.-ului, ocolești sera și gata câmpul. Așa am și făcut. Cînd am ajuns în marginea satului, i-am văzut de departe. Se adunaseră și lucrau de zor. M-am dus întins spre ei, dar n-am apucat să pun bine piciorul pe parcelă și o dată îl văd pe Oană că se ridică : — Păzea că vine orășanul nostru ! a auzit că-i rost de mîncare ȘI a venit să pape... Unul din băieți — Uță, parcă — lasă lopata ȘI-mi strigă :  
+135
+
+
+![Illustration on page 136](3 Doiniș,Sanda - Loteria_ocr_figures/page-136.png)
+
+---
+
+<!-- PAGE 137 -->
+— Ce cauți aici, Ignat? Să știi că încă nu sunt bune de mâncare!  
+Și se pornește pe un râs, ca nebunii. Eu tac și-i aștept să se potolească. Ți-ai găsit! Rîd, rîd, rîd, parcă cine știe ce au văzut. Atunci îmi iau inima în dinți și le spun de ce am venit. C-am fost naturalist, că vreau să intru în cercul lor, că o să le ajut, că mă pricep... Oană se ține cu mâinile de burtă de-atîta rîs și mă întreabă în batjocură :  
+— Zău ?! Și unde-ai făcut „culturi”, nas în sus? La oraș, pe trotuar? Sau poate acasă, între dușumele...  
+Și iar rîd. Numai Cheorghită tace și se uită la mine. Parcă ar vrea să spuie ceva și nu-i e la îndemână. Așa-i și în clasă Cheorghită ăsta. Potolit, băiat de treabă, dar pînă să scoată o vorbă, i-o ia zece îmaine. Și Oană-i dă cu gura, mai departe :  
+— Măi să fie! Istorie ne-nvață, de toate ne-nvață, acuși vrea să ne bage în cap și plugăria... Și zi-i, la oraș semânați morcovii și ieșeau bostani, nu ?!!!  
+Atunci mi-am ieșit din fire. I-am spus lui Oană :  
+— Vai de lume ce fel de om ești tu! Ce-a fost atunci la istorie, știi prea bine că n-a fost din vina mea. Și toată ziua îmi cauți rîcă. Așa că nu mai face po deșteptul. Crezi poate că am neapărat nevoie de parcela voastră? Află că nu! Îmi fac eu singur una de o să se ducă vestea în tot raionul. Rămîneți sănătoși cu vinetele și cu roșile voastre, că n-o să mă apuc eu să cultiv „prostii” din astea...  
+Zimbînd, (uite-așa, să le fac în necaz), le-am întors spatele și am plecat. Dar clocoteam de ciudă. „Lasă, domnule Oană — îmi spuneam în gînd — o să-i scriu lui Fănuță să se ducă la toate institutele alea mari de  
+
+136
+
+
+---
+
+<!-- PAGE 138 -->
+la București și să-mi trimită de acolo ce-o găsi mai de soi : trandafiri albaștri sau arbori de eucalipt, sau poate chiar niște puieti de palmieri. Acolo trebuie să existe. Și dacă n-or vrea să-i dea, o să le fure, că el e prietenul meu cel mai bun. Și tot o să mi le trimează. Atunci să te văd, domnule Oană, cu ce mai faci pe grozavul ? Cu roșii și cu vinete ? O să te rîdă tot raionul, domnule !“  
+
+A doua zi, de cum am intrat în clasă, am simțit că se petrece ceva : prea era liniște și prea nu-mi dădea nimeni nici o atenție. Abia cînd am ajuns la locul meu, am înteles. Pe bancă era așezat un borcan mare, cu capac, ca cele pentru conserve. Înăuntru puseseră un fel de ciorbă făcută din mazăre, fasole, porumb, grâu, toate... fierte laolaltă. Pe capac era un bilețel : „SĂMÎNȚA TRATATĂ PENTRU PARCELA DOMNIEIVOASTRE — CADOU DE LA CLASA A VI-A“.  
+
+Am luat borcanul, l-am așezat pe fereastră la răcoare și cu toate că abia îmi țineam plinsul de atita batjocură, m-am dus la tablă și am scris : „DOMNIEI VOASTRE SE SCRIE ÎN DOUĂ CUVINTENȚE !” Pe urmă m-am întors la locul meu ca și cum nimic nu s-ar fi întîmplat. În ora de română mă pomenesc cu un bileț din spate . „Am să-ți spun ceva. Gheorghiiță“. Am luat o hîrtie și i-am răspuns : „Nu mă interesează ce ai să-mi spui. Trebuie să fie vreo prostie. Andrei”. Și am expediat bilelul pe sub bancă, cu piciorul.  
+
+În recreație n-am ieșit din clasă. Îmi pusesem în gînd să-i fac o șotie lui Oană cu borcanul. Așa că am așteptat să iasă toată lumea în curte și m-am repezit la fereastră să-l iau. Am dat să pun mâna pe borcan cînd aud vorbă afară. Mă aplec și mă uit : sub geam „dușmani”. Sfadă  
+
+137
+
+
+---
+
+<!-- PAGE 139 -->
+în toată legea. Gheorghiță nu știu ce spune. Oană ți pă la el :
+— Ce, dacă ești conducătorul cercului, poți să faci ce vrei? Eu, unul, să știi că dacă e pe-așa, las toate baltă și îmi iau lumea în cap !
+Gheorghiță iar mormăie ceva de nu înțelege omul ni- mic. Uță sare că mai e vreme pentru asta, că acuma au atîta treabă și iar începe Oană :
+— Azi e joii. Mâine și poimâine terminăm cu gunoaitul. Duminică dimineața punem răsadurile.
+— Ce duminică dimineața ! i-o taie Nelu. Duminică avem adunare la școală.
+— La opt — spune Oană — la opt, căpăținosule ! Pînă la zece se termină. La zece jumătate sintem la parcelă și răsădim. Avem tot timpul.
+Toma încuviințează :
+— Bine, atunci duminică, înainte de adunare, trec eu pe la serea gospodăriei și iau răsadurile de la moș Cristea !
+Eu, ghemuit lîngă borcan, pe pervaz, ascultam.
+— Mamă, ce mai roșii și ce mai vinete — se bucura Alecu. Cît roata carului au să se facă. O să ne piz- muiască tot raionul !
+Nu știu de ce tocmai bucuria lui Alecu m-a făcut să mă gîndesc mai bine la ce discutaseră. Și tot gîndin- du-mă mi-am adus aminte de vorbele lui Oană : „La zece jumătate răsădim ! Avem tot timpul...“ Și, uite-așa, într-o clipă mi-a pierit și ciuda, și pofta de șotii cu bor- canul, și dorul de răzbunare... parcă mi le-a luat cineva cu mâna. Am început să rîd încetișor... am lăsat borca- nul pe fereastră, m-am întors la locul meu, înveselit,
+138
+
+
+---
+
+<!-- PAGE 140 -->
+nevoie mare. Eh, ce-o să-i mai pizmuiască raionul ! Să mori de rîs, nu altceva...
+La prînz, mai mult am zburat către casă decît am mers. Cum am ajuns, am dat buzna în odaia mea și-am început să scotocesc prin raftul cu cărți și caiete. Mă gindeam speriat că poate ți-am lăsat caietul ție, Fănuță, și tot planul cade baltă. Dar pînă la urmă l-am găsit : caietul meu cu însemnări de la cercul naturaliștilor. L-am răsfoit iute, iute, pînă am găsit ce căutam : notițele luat a la Palatul Pionierilor, cînd cu parcela noastră experimentală. O pagină... încă una... în fine... ,,răsadurile se pun fie la asfințit, fie în zori, pe o zi noroasă...“ Asta era. EU aveam dreptate. Am închis caietul cu un oftat de ușurare și m-am dus în bucătărie să mănînc, vesel, nevoie mare. Tata tocmai se așezase la masă. M-a privit mirat.
+— Bine că te mai vede omul și pe tine cu fruntea descrețită. Că de la o vreme umbli parcă tot îți ninge și-ți plouă.
+— Ți s-a părut, tată ! De ce să fiu necăjit ?... Da’ voi cum stați cu lucrul ? O să aveți vreme bună ?
+— O să avem ! spune tata și iar se uită la mine lung. Eu mă fac că nu bag de seamă.
+— Zilele astea o să plouă, tată ?
+— De unde vrei să știi eu ?
+— Ei, cum să nu știi ? Voi primiți la S.M.T. buletinul meteorologic.
+— E drept ! Acum că mi-ai spus, îmi aduc aminte că l-am văzut. Vreme bună, mi se pare.
+— Cu cer senin sau înnorat ?
+— Ce-ți veni, băiatule ? Nu poți să hoinărești dacă sint nori ?
+139
+
+
+---
+
+<!-- PAGE 141 -->
+— Ba da ! Dar au să fie ?
+— Ce ? Nori ? Nu cred. În buletin scrie : cer senin.
+Cer senin... cer senin... cer senin... aș fi cîntat dacă
+nu mi-ar fi fost rușine de tata. Cer senin !... am îmbucat la repezeală și m-am apucat de lecții.
+
+Am făcut o hartă și Marea Neagră era albastră ca un... cer senin, cer senin... La aritmetică am inventat singur o problemă și am început s-o rezolv : avem un cer... senin sub forma unei emisfere cu raza de... „Cer senin... cer senin“... Am răsfoit cartea de română și am citat toate poeziile în care era vorba despre cer albastru și senin... (și, slavă domnului, sint o grămadă !) Cer senin. Din când în când mai deschideam caietul de note și mă mai uitam... „fie la asfințit, fie în zori, pe o zi noroasă...
+
+Mi-am terminat lecțiile târziu spre seară, dar nu m-am culcat până nu a venit tata. I-am sărit înaite :
+— V-a venit vreun buletin nou ? l-am întrebat.
+— Băiatule, îți arde de pozne și o s-o pătești ! m-a amenintat tata în loc de răspuns. Ți-am spus c-o să fie vreme bună, da’ tu o ții una. Nu știu ce te-a apucat.
+
+M-am culcat fericit. Noaptea am visat o parcelă mare cu răsaduri, înconjurată 'din toate părți de o pînză deasă, albastră. De sub pînză a ieșit un om voinic, galben tot, cu un fel de lampă de sudură în mînă, din care ieșeau raze roșii și fierbinti. S-a apropiat de parcelă și a început să arda cu lampa de sudură toate răsadurile. Frunele se îngălbeneau, se aplecau și mureau. Pe urmă a pus lampa pe pămînt și la flacăra ei a început să fiarba într-o oală de sticlă o ciorbă din boabe de mazăre, de fasole, de porumb și de grâu. Omul sărea în jurul oalei, își freca mîinile și cânta :
+
+140
+
+
+---
+
+<!-- PAGE 142 -->
+..Mă recomand : sînt soarele.
+Uite, am aprins cuptoarele.
+Fierb boabe pentru semănăt
+Ce o să mai rîd la secerat !!...
+
+În dimineața următoare cred că n-aveam pereche în toată clasa de bucuros ce eram. Ți priveam cu coada ochiului pe Oană și rîdeam pe infundate, gândindu-mă la visul meu. Nici n-a sunat bine de ieșire la ultima oră, că eu am și zbuhit-o pe ușă afară. M-am dus glonț la seră ocolind curtea S.M.T.-ului, ca să nu dau cumva nas în nas cu tata. M-am învîrtit, m-am sucit, pînă l-am găsit pe moș Cristea, paznicul serei. L-am întrebat așa, ca să nu priceapă :
+— Răsadurile acelea „ale noastre”, „ale naturaliștilor”, mai sînt, moș Cristea ?
+— Cum să nu fie ? mi-a arătat moș Cristea o lădiță într-un colț al serei. Uite-le !
+Și a plecat să-și vadă de treburile sale.
+Eu am rămas locului privind tulpinile acelea verzi, cu frunzele mici, abia desfăcute. Dar nu le vedeam așa. Tulpinile erau moi și aplicate, frunzele galbene atîrnau fără viață, arse de soare. Știam bine că așa aveau să rătească în câteva ceasuri numai după ce au să le răsădească. Și iar le-am privit, de data asta cu oarecare curiozitate. De fapt, nu se deosebeau de loc de răsadurile obișnuite. Și totuși, te pomenești că erau adevărate vorbele lui Alecu. Te pomenești că din tulpinițele acestea măruntete și plăpînde, ar putea să iasă niște roșii și niște vinete cât roata carului. Da, da, s-ar putea. Doar sera Gospodăriei le primise de la București, de la nu știu ce institut de cercetări... sau așa ceva
+
+141
+
+
+---
+
+<!-- PAGE 143 -->
+Și nu s-ar lăuda cercetătorii aceia așa cu una cu două. Ceva adevărat trebuie să fie! Păcat! mi-am zis și m-a apucat ciuda la gândul că niște băieți crescuți la țară, cum erau Oană și ceilalți, n-au habar cum se pun răsadurile. Am întins mâna și am atins ușor frunzele crude: erau atît de proaspete, de credai că acuși-acuși au să ți se sfârime sub degete. Și am oftat o dată, spunând cu năduf: ,,Păcat! Păcat! dar așa le trebuie îngimfaților ăstora!"
+
+Moș Cristea m-a găsit tot acolo, lîngă lădițele cu răsaduri.
+— Le ieși? m-a întrebat el.
+— Nu! m-am grăbit să-i răspund. O să le ia 'Toma... duminică dimineața. Eu am trecut doar așa... să le văd...
+
+Și am plecat. M-am învîrtit primprejurul serei o vreme, am trecut pe la parcelă, iar m-am întors la seră, apoi am luat drumul înapoi spre sat. Și gîndurile îmi umblau tot așa, într-aiurea. De zăpăcit ce eram, am tăiat drept prin curtea S.M.T.-ului și nu mi-am dat seama decît în clipa cînd am dat nas în nas cu tata. Era furios, vorba ceea, să nu-i treci pe dinainte. Cum m-a văzut, hop cu gura pe mine.
+— Unde umblî, domnule? Te așteaptă maică-ta la masa de trei ceasuri. Unde umblî?
+— Am avut treabă, am îngăimat eu.
+— Hai acasă! mi-a zis tata scurt și a pornit înainte. Eu m-am luat după el, cu gîndul tot la ale mele. Abia mai tîrziu am observat că tata mă întreba ceva.
+— Poftim?
+— Ce, n-auzi cînd vorbesc? Te-au năpădit grijile,
+
+142
+
+
+---
+
+<!-- PAGE 144 -->
+te pomenești. Te-am întrebat unde ați pus voi, tu și cu maică-ta, lada aceea a mea cu scule ?
+— Care ladă, tată ?
+— Mă, Andrei, ce-i cu tine ? Parcă te-ai zăpăcit, zău așa ! Nu știi care ladă ? De cînd erai de-o palmă cotrobăiesți prin ea...
+— Ah, lada cu scule, m-am trezit eu. Am pus-o în sălita și a învelit-o mama cu un preș. Da' la ce-ți trebuie ?
+— Să-mi iau niște scule, să-i repar prășitoarea lui Axente.
+Ce să-l mai întreb care Axente, că acuși mă pomenesesc că de fapt și pe ăsta îl știu de cînd eram de-o palmă.
+— Omul leneș, tot leneș — îi dă tata înainte cu Axente al lui. I-am spus de acum două săptămîni : ad-o la revizie, domnule. El cică : ia să nu mă înveți pe mine agricultura, tovarășe Ignat ! Și acu' vine și plinge în pumni : cică stă. Las’ să stea ! Doar i-am spus ! Acum să te văd, tovarășe Axente, cum îți faci planul ? Să te văd !
+— Atunci de ce i-o repari ? am întrebat eu, tot cu gîndurile aiurea.
+— Alt deștept ! Cum să n-o repar ? Și mîine la cîmp cu ce prășește ? Cu furculița ? Să-mi pun ambliția, să pătimească gospodăria pentru prostia unuia ? Crezi tu...
+Tata vorbea mai departe furios, dar eu nu-l mai ascultam. Eram cu gîndurile la răsadurile acelea mărunt ele, la băieți și la atitea altele.
+Ce să-ți mai spun că acasă, mama m-a muștruluit zdravăn, că tata era și mai furios (ii lipsea o sculă din ladă și o ținea mortiș că eu am rătăcit-o). Iar mie îmi trecurse cheful de toate. Lecțiile mi le-am făcut în silă.
+Ba și seara, cînd tata a venit mai inveslit (pesemne se
+143
+
+
+---
+
+<!-- PAGE 145 -->
+impăcase cu Axente ǎla) și mi-a arătat buletinul meteo- rologic : „Uită-te, cer senin ca-n palmă următoarele trei zile, parcă vroiai să știi...“ i-am răspuns plictisit : — Bine ! Iar tata a înălțat din umeri : — Ȃl de sus să te mai înțelegă ! După cit mi-ai bă- tut capul, credeam că o să-mi sari de gît de bucurie ! Eu însă, n-aveam chef să sar de gît nimǎnui. Simbătă, toată dimineața, la școală, îi priveam pe nepri ceputii de „naturaliști“ gândindu-mă cu ciudă : „Bunătate de ră- saduri și se prăpădesc din pricina prostiei voastre ! Și mai sinteți și îngimfați pe deasupra !“ La plecare mǎ pomenesc cu Gheorghitǎ lingǎ mine : — Vreau să-ți mai spun ceva ! — Mie ? Spune-i lui Oanǎ ! — Ba ție, și chiar acum ! — Atunci... să-mi scrii ... Sau dă-mi un telefon... mai bine... i-am aruncat eu în bătaie de joc. I-am întors spatele și l-am lăsat acolo în mijlocul dru- mului. Acasǎ am mîncat singur, la repezeală, m-am foit cit m-am foit și, plictisit, mi-am scos caietele și cărțile din ghiozdan să mai scriu ceva. Mama s-a uitat la mine, nedumeritǎ : — Ce te-a apucat ? N-ai chef de joacǎ ? Ce-ți veni cu lecțiile ? Doar miine e duminicǎ. Duminicǎ ! Parcǎ m-a ars un fier roșu cînd am auzit-o. Am lăsat cărțile și caietele pe masă și am ieșit în curte. Duminicǎ ! Mǎ învârteam fără nici un rost prin ogrădă : găinile-mi stăteau în drum, cîinele vecinilor mǎ lătra prin gard. Nici nu știu cînd m-am pomenit pe ulița mer- gind spre capul satului. Era trecut de patru și băieții trebuie că erau de mult la parcelǎ ca să pregăteascǎ 144
+
+
+---
+
+<!-- PAGE 146 -->
+total pentru a doua zi. A doua zi !!! Să mori de rîs, nu alta, gîndindu-te la asta. A doua zi !!!
+
+Dar nu știu de ce, nu-mi venea de loc să mor de rîs. Ba dimpotrivă. Ca să-mi treacă timpul, am intrat în curtea S.M.T.-ului. Unul din băieții din atelier mi-a făcut semn. Erau vreo câteva tractoare în reparație și m-am dus să văd cum se spală piesele. Numai că e o treabă tare migăloasă și eu n-aveam răbdare pentru astfel de lucruri; așa că, după o vreme, am ieșit și am început să mă învârt prin curte. Tata tocmai pleca la câmp cu un „Gaz” care îl aștepta în poartă.
+
+— Mergi cu mine ? m-a întrebat. Hai că te iau cu mașina.
+
+M-am dus. Am trecut chiar prin marginea terenului unde lucrau băieții și-m-am întors capul, prefăcîndu-mă că mă uit în altă parte. Dar cu coada ochiului îi vedeam arătînd spre mașină și șuşotind între ei. Tata a oprit mai departe, tocmai în mijlocul câmpului, a coborît și a început să discute cu agronomul. Eu am rămas locului, privind în depărtare la mogildețele care abia se zăreau pe terenul experimental. Am primit aşa pînă aproape de asfinţit, cînd i-am văzut plecînd. Şi iar mi-a trecut cheful şi de plimbare şi de tot. M-am suit în mașină, așteptându-l pe tata și n-am scos o vorbă pînă la intrarea în sat. Treceam tocmai pe lângă seră, cînd l-am auzit pe tata spunîndu-i agronomului :
+
+— Las-o pe luni. Mâine tot e duminică.
+
+„Duminică“ ! am sărit ca ars.
+
+— Tată, lasă-mă, te rog, aici ! i-am zis. Și am coborit.
+
+Am ocolit serea uitîndu-mă dacă nu mă vede cineva și m-am furiat în partea unde erau răsadurile noastre. Se întunecase aproape, dar eu tot mai zăream tulpițițele
+
+145
+
+
+---
+
+<!-- PAGE 147 -->
+drepte și crude, cu frunzișoarele tinere. Păcat ! Păcat ! De trei ori păcat ! Aș fi dat orice să le văd aplecîndu-se sub greutatea roșiilor și vinetelor mari cit roata carului. Pentru că acum nu mai aveam nici o îndoială că aveau să fie cu adevărat cit roata carului. Ce vină aveau ele, bietele, c-au început pe mîna unor naturaliști dușmănoși, răutăcioși și pe deasupra nepriecuți ? Și cine știe ? Poate din cultura asta ar fi putut să iasă vreo mare descoperire agronomică. Ar fi scris ziarele, revistele... ar fi ajuns vestea pînă la tine, Fănuță ! Și tu ai fi spus la toată lumea : „Știam eu că Andrei e un geniu. Știam încă din clasa a III-a !“  
+
+În clipa aceea, o umbră s-a oprit lîngă mine .  
+— Ai venit după răsaduri ?  
+N-am stat pe gînduri nici o clipă :  
+— Da, Moș Cristea !  
+— Parcă ziceai că vine Toma mîine dimineață...  
+— Ziceam. Dar am venit eu. El are treabă... Vrem să le avem mîine pregătite.  
+— Păi, să ți le dau !  
+
+Și mi le-a dat. Am încărcat lădițele într-o roabă. I-am cerut și un felinar. („Moș Cristea, n-o să văd pe unde merg, că s-a înnoptat. Și te-ai rugat băieții și de un hîrlet, dacă ești bun !“) Mi-a deschis ușa serii și eu, mulțumindu-i, am pornit-o spre cîmp.  
+
+Cred că era trecut de miezul nopții, cînd m-am întors acasă. Mama mă aștepta în poartă speriată și cred că s-a însămîntat și mai tare, văzîndu-mă murdar de pămînt din cap pînă în picioare :  
+— Unde ai fost ?  
+— Am fost la cîmp !  
+
+146
+
+
+---
+
+<!-- PAGE 148 -->
+— Noaptea ? Asta ce joacă o mai fi ? Las-că o să ai tu ce auzi de la taică-tău mîine. Noroc că s-a culcat. Acum, trece și te spală !
+
+— Mă spăl mîine, mamă ! am îngăimat eu. De oboseală, abia mă mai puteam ține pe picioare, iar în locul oaselor, aveam parcă niște piroane țepene.
+
+— Ce „mîine“ ? s-a încruntat mama. Să nu-mi intri în odaie năclăit în halul ăsta, că... Aoleu ! Am și uitat de el — se bătu mama la gură, incrementată...
+
+— De care el ?
+
+— Băiatul din odaie. Te-a căutat de vreo trei ori. S-a întors pe la opt, a zis că te așteaptă și i-am spus să stea în odaia ta...
+
+— Un băiat ?
+
+Cînd am deschis ușa, am dat cu ochii de Gheorghiță dormind cu capul pe masă. L-am scuturat și s-a trezit buimac, privind în toate părțile.
+
+— Ce mai vrei ? l-am întrebat eu, deși abia mai puteam deschide gura de oboseală. El s-a frecat la ochi încurcat.
+
+— Știi... — mi-a spus — noi ne-am supărat cu Oană. Toți...
+
+— Și ce-mi pasă mie ? Să fii sănătoși...
+
+— Nu mai zi așa. Ești minios pe drept, dar acum noi te primim. Să știi. Te primim în cerc. Că i-am zis lui Oană : „Mă, te-ai supărat degeaba. N-a fost vina lui. Și dacă nu știe agricultura, cum zici tu, să-l învățăm. Noi l-am întărit de ne dușmănește...”
+
+— Nu vă dușmănesc ! am spus încet și parcă dintr-o dată mi-a pierit și somnul și necazul...
+
+— Ba da... Oană, nu și nu, că dacă vii tu, pleacă el, că simțem prosti și sucită și învârtită. Și s-a dus ca ne-
+
+147
+
+
+---
+
+<!-- PAGE 149 -->
+bunul. Aşa că acuma să vii să răsădim. Mâine la zece jumătate... Şi Oană lasă că se împacă el, că nu-i băiat rău.
+O clipă am stat în cumpănă : să-i spun ? Să nu-i spun ? Dar el şi-a luat șapca și pe jumătate dormind, a plecat. Iar eu m-am așezat pe marginea patului, privind în urma lui. Şi dacă n-aș fi știut că doarme tata și că mama e foc supărată pe mine, aș fi tras un chiot să răsune casa. Şi ce să-ți mai spun, Fănuță dragă ? Dimineața, la zece, eram pe parcelă. Răsadurile pe care le pusese noaptea, se ridicau acum drepte în lumina soarelui. Mă uitam pe cer... senin ca-n palmă, vorba tati ! Şi-i așteptam pe băieți.
+Să-i fi văzut când au venit : întîi au făcut niște ochi cit cepele. Apoi, cînd le-am povestit ce și cum, să te ții bucurie. „Cum am uitat ?!“ se minuna Gheorghita și de atîta rîs, mai, mai, să se înce cu vorbele. Se opreau o clipă, se uitau unul la altul și iar se pomeau pe rîs.
+Cînd era veselia în toi, am zărit apărind dinspre sat capul tuns chilug al lui Oană. Venea alergînd intr-un suflet și strigând :
+— Stați, stați, opriți-vă !
+Cînd a ajuns lingă parcelă, s-a oprit abia trăgîndu-și răsuflarea și cu ochii holbați la răsaduri :
+— Le-ai și pus ?! Gata ! S-au dus ! Mi-am adus aminte.
+Dar vorba nu și-a mai terminat-o că ceilalți s-au pus pe un rîs și mai strașnic. Rîdeam și eu și mă uitam la Oană, în vreme ce Alecu fii povestea toată întîmplarea. Apoi m-am dus lingă el, l-am luat de braț și i-am spus :
+— Dacă vrei... eu mai am cartea despre Comuna din Paris… Pot să ți-o împrumut. O să-ți placă !
+148
+
+
+---
+
+<!-- PAGE 150 -->
+Ce a mai fost, Fănuță dragă, o să-ți scriu altă dată.
+Acum trebuie să închii, pentru că Oană mă strigă la gard. A venit să mă ia la parcelă. Că pînă să vedem noi roșile și vinetele astea cit roata carului și pozele noastre în ziar, mai avem o groază de treabă.
+
+Al tău prieten care nu te-a uitat
+
+Agronomul Andrei“.
+
+1956
+
+
+![Illustration on page 150](3 Doiniș,Sanda - Loteria_ocr_figures/page-150.png)
+
+---
+
+<!-- PAGE 151 -->
+
+
+
+---
+
+<!-- PAGE 152 -->
+## CUPRINS
+
+- Loteria 7
+- Sfântuța 33
+- Poveste despre doi băieți 75
+- Întâmplare dintr-o iarnă grea 91
+- Porumbeii 107
+- Dragă Fănuță 125
+
+
+![Illustration on page 152](3 Doiniș,Sanda - Loteria_ocr_figures/page-152.png)
+
+---
+
+<!-- PAGE 153a -->
+Nr. 2580  
+Redactor de carte: I. Bică  
+Tehnoredactor: V. Postelnicu  
+
+Dat la cuies: 10.VI.957. Bun de tipar 26.VIII.957.  
+Tiraj 20.110. Hirtie S. Velină de 65 gr. m.p. Coli de tipar 9,5. Coli de editură 6. Ft. 32/84×108. Com. editurii 2491. Editia I. A. 01235. Pentru bibliotecile mici indicele de clasificare (8 R)  
+
+Tiparul executat sub com. nr. 950 la Combinatul Poligrafic Casa Scintei „I. V. STALIN”. București — R.P.R.
+
+
+---
+
+<!-- PAGE 153b -->
+
+
+
+![Illustration on page 153b](3 Doiniș,Sanda - Loteria_ocr_figures/page-153b.png)
+
+---
+
+<!-- PAGE 154 -->
+Lei 3,50
+
+
+![Illustration on page 154](3 Doiniș,Sanda - Loteria_ocr_figures/page-154.png)
+
+---
+
+<!-- PAGE 155 -->
+
+
+
+---
+
