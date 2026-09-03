@@ -52,10 +52,11 @@ de aceea la care in cele din urmă se hotărise regretul autor
 fără să mai fi avut timpul să o comunice la Cambridge : The
 ancient civilizations of the Carpatho-Danubian countries ¹).
 Cartea, precum era de prevăzut, a avut un frumos succes. Acum este aproape epuizată. Caracterul ei rezumativ și sintetic o face folositoare deopotrivă cercetătorului de specialitate și oricărui intelectual care nu caută într-o lucrare referitoare la antichitate decât idei și fapte generale. Ea a fost socotită uneori ca un rezumat al Geticelor, ceeace e adevărat numai în parte, pentru capitolele I, II și IV (despre Villanovieni, Scythi și Celți). Capitolul III, privitor la influențele grecești în regiunile noastre, constituie o reluare sub o formă nouă a problemelor tratate de către Vasile Pârvan ceva mai inainte, în 1923, în La pénétration hellénique et hellénistique dans la vallée du Danube și în Inceputurile vieții romane la gurile Dunării. În schimb capitolul ultim, Carpato-Danubienii și Romanii, o excelentă privire complexivă asupra formării și evoluției romanismului în marea unitate a regiunilor dunărene, este aproape cu totul inedit în opera publicată a lui Vasile Pârvan.
+
 Tratând despre un principal fenomen de istorie universală, din care a rezultat latinitatea poporului român, acest capitol, prea puțin luat în seamă până acum de către publicul nostru și chiar de către specialiști — din pricina felului discret în care a apărut, după moartea autorului, la sfârșitul unei cărți englezești, deci puțin citită la noi — reprezintă mărturia unui gând mare ce până în ultimele clipe frământa spiritul de neastâmpăr—¹)
+
 1) Cf. H. Metaxa, Vasile Pârvan : note bio-biografice, in Arhiva pentru Știința și Reforma Socială, VII (1928), nr. 3—4, p 16 din extras
-IX
-www.dacoromanica.ro
+
 
 
 ---
