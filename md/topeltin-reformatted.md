@@ -1511,10 +1511,6 @@ Cibinium mil tali ciibus somni antibus dolo cepit, vnde viros, quos numero fuoru
 
 
 
-
-
-
-```markdown
 Lidæ. Increparribus illum Theologis, prætextuit injurias Andreae Bathori, quem acie fusum Cibinienses intra mœnia recipere recusaverant, Clemens, inquiens, vindicata genus est, propter defertum & trucidatum Fratrem multiplicare urbem. Quum autem Proceres diuina humanáque in Patria confundi viderent, conceptis in illum odiiis ad Portam Otramanicam questum mittunt; quo percepit indicias metuens, Varadinum fecerit, ubi extra arcem recreandi animi causa carpentō vectus paulo post à Duobus Nobilibus est interfectus. Arque hic ignobili clausula nobilis-famam & Illustrem Bathoriorum familiam finijt.
 
 Huic suffectus est in Imperio Bethlen Gabor (Hungarismus prænomen nomini postponit) Princeps magnanimus & felix, qui terrorem & exercitū ad Vienna vfque moenia duxit, quum Turcarum indulto Bohemis: fidei fun cognatis opem ferret.
