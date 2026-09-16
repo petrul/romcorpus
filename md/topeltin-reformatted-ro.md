@@ -327,9 +327,6 @@ Tot acolo așază originile ungurilor Thuróczy și Bonfinius — acesta din urm
 Am spus puțin mai sus că popoarele numite *Magari*, care fără îndoială sunt *Magares*, sunt așezate de Plinius, cartea a VI-a, cap. 20, în apropierea Indiei. Cu această descriere a lui Plinius se potrivește topografia popoarelor Chinei și Indiei, care, potrivit reprezentării lui Ptolemeu, sunt așezate dincolo de Gange și au către răsărit și miazăzi ținuturi pustii. Câtă vreme au rămas necunoscuți în marginile îndepărtate ale Asiei, abia în veacul nostru și în cel precedent — veacuri în care strădania omenească n-a lăsat aproape nimic necercetat în explorarea părților lumii — a fost publicată despre ei o cărticică având titlul *Chinarum*, în care sunt descrise uimitoarea pricepere a acelui neam și obiceiurile sale, diferite de cele ale ungurilor.
 
 
-
-
-```markdown
 Se povestește acolo că între popoarele Chinei se află unii care chiar și acum sunt numiți Megori. „Ei stăpânesc”, spune autorul, „un regat întins și vestit prin gloria armelor, a cărui metropolă este Samarkand; se spune că aceștia n-au fost aduși sub stăpânirea niciunui neam.” Acestea le spune autorul despre China. Dacă lucrurile acestea sunt adevărate, nu încape îndoială că acești Megori sunt Megarii lui Plinius și strămoșii ungurilor înșiși; căci, în limba ungurească, aceștia se numesc astăzi pe ei înșiși Magiari.
 
 Mai departe, Samarkandul este la Ptolemeu *Sarmagana*, cetate din regiunea Aria, în Asia; la Arrianus și Curtius este cetate a regiunii Sogdiana. Acea parte a Asiei este ocupată de Tamerlan și, acum, de feluritele neamuri ale tătarilor. Mi-a plăcut să adaug aici și ceea ce aduce Samoscius în manuscrisul *Origines Hungarorum*: în anii din urmă ar fi venit la Constantinopol, la Amurat, împăratul turcilor, un sol din acea veche patrie a Magarilor, lucru primit de la oameni vrednici de crezare și a căror autoritate este recunoscută. Se spune că acesta, venit să ceară public și în particular bunăvoință și prietenie pentru regele și regatul său, a fost primit cu atâta cinste de tiranul turcilor, încât părea nu un om venit să caute apropierea împăratului, ci mai curând regele acelui popor, invitat de împărat și legat de el printr-o veche prietenie.
@@ -377,10 +374,6 @@ Faptul că în Dietele Daciei acești secui ai Transilvaniei sunt deosebiți de 
 După câțiva ani, dacii noștri, care nu se deosebeau aproape deloc de ei prin obiceiuri, și i-au asociat. De atunci au împărtășit aceeași soartă și aceleași întâmplări până la a doua năvălire a hunilor, când hunii, după ce au recucerit Pannoniile, au început să le locuiască și le stăpânesc încă și astăzi. Lor le-a revenit și Transilvania, provincie pe care obișnuiau s-o administreze prin guvernatori numiți voievozi. Voievozii erau însoțiți de nu puțini nobili, iar aceștia, în cele din urmă, atrași de frumusețea ținutului, nu au ezitat să-și statornicească așezarea în Dacia. În sfârșit, după desprinderea provinciei de unguri, s-a hotărât ca Transilvania să fie administrată, pe lângă principe, prin sfatul stărilor ungurilor, secuilor și dacilor.
 
 
-
-
-
-```markdown
 ## CAPITOLUL VI
 
 ### Despre valahi sau olahi.
@@ -662,10 +655,6 @@ Turcii nu vor să fie tunși peste pieptene; invocând curățenia capului, se r
 
 
 
-
-
-
-```markdown
 Numai clericilor sași dintre daci le este îngăduit să-și lase părul lung; și studenții artelor liberale au voit să fie socotiți astfel, căutând să-și câștige o înfățișare plăcută prin părul lăsat să cadă în bucle. Oare fiindcă se pregătesc pentru slujbele sfinte sau urmează să le îndeplinească, este de aceea un obicei solemn să-și lase părul să crească până la o anumită lungime? Profesiunea lor, ce-i drept, nu cere aceasta; deși nu ignor că, în Levitic 21, 19, preoților li s-a interzis să-și radă capetele; dar aceasta era o poruncă restrânsă la anumite împrejurări ale acelei epoci.
 
 Cu toate acestea, în vremurile vechi exista la fanatici obiceiul de a-și lăsa părul să crească. Scaliger, Turnebus, cartea XI, cap. 10. Din motive religioase își lăsau părul să crească pentru oracole. [Vezi] nota la Vergiliu. Și pe Columna lui Traian, băieții care îndeplinesc slujbe sacre sunt înfățișați cu părul lung.
@@ -884,10 +873,6 @@ Prudentius, de asemenea, despre primii creștini:
 La mormintele ungurilor se fixează un *pilus*, adică un con. La spanioli exista odinioară obiceiul de a înfige tot atâtea vergele sau sulițe câți dușmani ucisese fiecare; se spune că și vechii britani făceau lucruri foarte asemănătoare, pentru ca, asemenea [celor care priveau] scutul și sulița lui Alexandru sau ale lui Ahile ridicate la mormânt, cei rămași să fie îmbărbătați. Căci în mormintele morților se află un fel de istorie a vieții lor.
 
 
-
-
-
-```markdown
 ## CAPITOLUL XVI.
 
 *Despre obiceiurile ospețelor.*
@@ -949,12 +934,6 @@ De aceea, spune Hayton în *Historia Orientalis*, cap. 16, tătarii țin pasăre
 Adică: Turcii obișnuiesc să poarte pe cap pene foarte asemănătoare, urmând obiceiul tătarilor. Aceasta s-ar fi întâmplat după ce Zinghi Han — pe care unii îl numesc în mod greșit Changius — și-ar fi păstrat viața datorită unei bufnițe. Pasărea se așezase pe tufișurile sub care Zinghi Han se ascundea de teamă, urmărit de dușmani; văzând bufnița stând acolo liniștită, urmăritorii au fost convinși că nu se putea ascunde niciun om în acel loc, căci socoteau că bufnița n-ar fi rămas atât de liniștită în prezența unui om. De aceea, după cum relatează Hayton, tătarii cinstesc într-atât pasărea amintită, încât se socotesc fericiți dacă își pot împodobi capul cu penele ei; iar treptat obiceiul de a-și prinde pene de tot felul de păsări s-a răspândit foarte mult, în amintirea acelei întâmplări și din respect față de principe.
 
 
-
-
-
-
-
-```markdown
 # CAPITOLUL XVIII.
 
 ## Ostașii transilvăneni împodobiți cu piei de lup
@@ -1058,13 +1037,6 @@ Căci Transilvania, vechea Dacie, cârmuită odinioară de propriii săi regi, i
 Pe care dintre împărați, până în aceste vremuri decăzute ale noastre, l-a lăsat neîncercat vitejia daco-transilvăneană? În epoca cea mai înfloritoare a poporului roman, dacii l-au silit pe împăratul Domițian să le plătească un tribut anual; însă după aceea și ei au fost pedepsiți greu de Cezarul Traian, care, în două expediții, a prefăcut regatul lor într-o provincie.
 
 
-
-
-
-
-
-
-```markdown
 Și se mai află încă la Roma Columna lui Traian, cel mai bun martor dintre monumentele Antichității care s-au păstrat acolo neatinse. Nu demult o priveam cu greu fără lacrimi, gândindu-ne că aceia care odinioară erau dușmani și rivali atât de primejdioși ai stăpânilor lumii, ajunși acum aproape la nimic, sunt apăsați de o robie cumplită.
 
 Și ungurii i-au supus odinioară pe sarmați, dalmați, italieni, gali și germani; iar istoria consemnează cu strălucire că germanii au fost cândva tributari ungurilor, până când Henric Păsărarul i-a învins și i-a oprit printr-o înfrângere memorabilă.
@@ -1136,20 +1108,13 @@ Mezethus procedase însă mai viclean. Își trimisese cavaleria în văile apro
 
 
 
-
-
-
-
-Continuarea traducerii:
-
-```markdown
 Ioan și episcopul, văzând mulțimea care îi înconjura, s-au înspăimântat și au luat-o la fugă înapoi. Dușmanii îi urmăresc din spate, iar pe cei pe care îi ajung îi capturează sau îi ucid. Episcopul, când toți fugeau împrăștiați, încearcă să se salveze cu aceeași iuțeală; dar, pe când încearcă să sară peste un pârâu, este aruncat de pe cal și ucis de dușmanul care îl urmărea. :contentReference[oaicite:0]{index=0}
 
-Turcii, încurajați de această victorie, pustiesc nepedepsiți în toate direcțiile. Corvin străbate cu o iuțeală uimitoare Transilvania, cu sabia încă însângerată, adună ostași din sate și târguri și le poruncește secuilor să ia armele. Apoi îl urmărește cu o armată strânsă în grabă pe turcul care, după ce pustiise provincia, se retrăgea cu prea multă încredere, căutând să-l surprindă oriunde timpul și locul i-ar fi oferit prilejul. :contentReference[oaicite:1]{index=1}
+Turcii, încurajați de această victorie, pustiesc nepedepsiți în toate direcțiile. Corvin străbate cu o iuțeală uimitoare Transilvania, cu sabia încă însângerată, adună ostași din sate și târguri și le poruncește secuilor să ia armele. Apoi îl urmărește cu o armată strânsă în grabă pe turcul care, după ce pustiise provincia, se retrăgea cu prea multă încredere, căutând să-l surprindă oriunde timpul și locul i-ar fi oferit prilejul. 
 
 Curând, când lui Mezethus i se vestește că Ioan îl urmărește de aproape cu o mulțime uriașă, se spune că acesta ar fi răspuns:
 
-> „Să vină și să-mi lase o victorie și mai bogată decât cea dintâi.” :contentReference[oaicite:2]{index=2}
+> „Să vină și să-mi lase o victorie și mai bogată decât cea dintâi.” 
 
 Printre ei se afla un cercetaș transilvănean, care auzea pe ascuns toate hotărârile pe care Mezethus le lua cu privire la lupta ce urma. Turcul le poruncise mai ales oamenilor săi ca, încă de la începutul bătăliei, să se năpustească numai asupra lui Ioan, socotind că, odată acesta ucis, ceilalți, înspăimântați de moartea comandantului lor, vor putea fi lesne învinși.
 
@@ -1157,7 +1122,7 @@ După ce cercetașul auzi acestea, se strecură pe ascuns și alergă înapoi la
 
 Aflând acestea, Ioan luă pe loc o hotărâre potrivită și salvatoare. Avea în oaste un anumit soldat, de neam nobil din familia Kemény, pe nume Simon, foarte asemănător la înfățișare cu Corvin și, de altfel, bărbat viteaz și neobosit. Cu acesta își schimbă calul și armele, apoi îl așază în mijlocul celei mai puternice formații de cavalerie.
 
-Simon, pus astfel în locul lui Corvin, nu se dă înapoi din fața primejdiei și, cunoscându-și soarta, nu refuză să moară pentru stăpânul său. Apoi pornește pe urmele dușmanului și caută pretutindeni prilejul de a intra în luptă. :contentReference[oaicite:4]{index=4}
+Simon, pus astfel în locul lui Corvin, nu se dă înapoi din fața primejdiei și, cunoscându-și soarta, nu refuză să moară pentru stăpânul său. Apoi pornește pe urmele dușmanului și caută pretutindeni prilejul de a intra în luptă. 
 
 În timp ce lupta se desfășura de ambele părți, turcii aleși pentru vitejia lor îl înconjoară, după planul stabilit, pe Simon, care purta armele lui Corvin. Dar, fiind apărat de o formație compactă de călăreți în armură, nu puteau ajunge ușor la el, astfel încât mulți au căzut în jurul său.
 
@@ -1167,7 +1132,7 @@ Simon, pus astfel în locul lui Corvin, nu se dă înapoi din fața primejdiei �
 
 Mezethus, împreună cu fiul său și cu trupele care îi mai rămăseseră, deznădăjduind că-i mai poate învinge pe acești oameni „prefăcuți în fiare”, cum spunea el însuși, aruncă armele și o ia la fugă. În timpul retragerii sunt aproape cu toții măcelăriți, până într-atât încât abia dacă a mai rămas cineva care să-i ducă lui Murad vestea înfrângerii. :contentReference[oaicite:6]{index=6}
 
-Cu același noroc, Ioan a smuls de la Șehabeddin Pașa și vestita victorie de la **Poarta de Fier**, numită în ungurește *Vaskapu* — victorie despre care îmi amintesc, ca prin vis, că îi auzeam adesea pe strămoșii mei povestind. :contentReference[oaicite:7]{index=7}
+Cu același noroc, Ioan a smuls de la Șehabeddin Pașa și vestita victorie de la **Poarta de Fier**, numită în ungurește *Vaskapu* — victorie despre care îmi amintesc, ca prin vis, că îi auzeam adesea pe strămoșii mei povestind. 
 
 Nu mult după aceea, Vladislav, regele Ungariei, încurajat de norocul comandantului și convins de Iulian, legatul Scaunului Apostolic, precum și de Gheorghe Despotul, principele Moesiei, mai ales după ce regatul Ungariei fusese pacificat prin moartea reginei Elisabeta, își adună armatele, pe care le avea foarte bine instruite, pentru a recupera câteva provincii.
 
@@ -1201,11 +1166,11 @@ Văzând aceasta, cardinalul Iulian, legatul papei, om foarte elocvent, îi înc
 
 Iulian susținea că legăturile jurământului încheiat cu puțin înainte cu turcii trebuiau rupte, deoarece fuseseră încheiate cu necredincioși care, prin propriile lor fapte, încălcaseră sfânta comunitate creștină; că ungurii nu ar fi putut acorda pace turcilor fără consultarea fraților lor creștini și că, prin urmare, jurămintele depuse în mod nedrept erau lipsite de orice putere juridică. Îi îndemna să aibă încredere în el, ca într-un cunoscător al dreptului.
 
-Să se grăbească, așadar, și, refăcând cât mai repede armata, să se unească în Tracia cu aliații, înainte ca vestea unei greșeli atât de mari să se răspândească. :contentReference[oaicite:12]{index=12}
+Să se grăbească, așadar, și, refăcând cât mai repede armata, să se unească în Tracia cu aliații, înainte ca vestea unei greșeli atât de mari să se răspândească. 
 
 Prin acestea și alte argumente, rostite într-un discurs foarte îngrijit pe care nu-l vom transcrie aici, i-a însuflețit pe unguri într-atât încât aceștia au hotărât într-un singur glas că mai degrabă vor muri decât să-i abandoneze pe creștini și o asemenea ocazie.
 
-Armata este din nou adunată în grabă și, după ce Ioan Corvin este trimis înainte, după obicei, regele Vladislav pornește împreună cu ceilalți spre Tracia. :contentReference[oaicite:13]{index=13}
+Armata este din nou adunată în grabă și, după ce Ioan Corvin este trimis înainte, după obicei, regele Vladislav pornește împreună cu ceilalți spre Tracia.
 
 Pe drum, **Dracul, voievodul Valahiei Transalpine**, îi iese înainte regelui. Uimit de îndrăzneala acestuia de a-i ataca pe turci cu o armată atât de mică, îi spune că turcii obișnuiau să meargă chiar și la vânătoare cu forțe atât de numeroase și, în cele din urmă, îl sfătuiește să se întoarcă.
 
@@ -1240,7 +1205,6 @@ După aceea, turcii, îndreptând greul războiului spre italieni și spre alte 
 În anul **1480**, Matia Corvin, regele Ungariei, fiind prins în treburile Boemiei și Austriei, și-a redus considerabil preocuparea pentru războiul împotriva turcilor. Din această cauză, venețienii și papa Sixt al IV-lea au retras suma de până la o sută de mii de galbeni pe care o oferiseră anual până atunci pentru acest război.
 
 În aceeași vreme, Transilvania era condusă de **Ștefan Báthory**. Ali-Beg a invadat-o cu o armată uriașă, însă Báthory, ajutat de **Pavel Kinizsi**, comandantul Timișoarei, i-a provocat o înfrângere extraordinară pe **Câmpul Pâinii**, unde au fost uciși aproximativ șase mii de turci.
-
 
 
 
@@ -1335,9 +1299,6 @@ Socotea că acel rege atât de puternic și mărinimos nu va nesocoti rugăminț
 Învățase că Soliman se desfăta nespus cu această glorie, potrivit acelei ambiții socotite de autor caracteristică regilor Orientului.
 
 Acesta era planul care, după cum avea să arate desfășurarea evenimentelor, s-a dovedit pentru Ioan cât se poate de salvator și, în împrejurările date, onorabil — dacă se ține seama de condiția unui rege alungat și exilat.
-
-
-
 
 
 După ce lucrul fusese astfel hotărât, **Łaski**, care — fiind autorul acestui plan — își revendica în primul rând faima și gloria unei întreprinderi atât de însemnate, bizuindu-se mai ales pe propria iscusință și pe prietenia primului vizir al Curții de la Constantinopol, precum și a unui evreu și a altora care se bucurau de trecere pe lângă împărat — legături pe care le dobândise mai înainte, când îndeplinise acolo o misiune diplomatică — primi solia și porni spre Bizanț.
