@@ -404,13 +404,25 @@ IN
 ---
 
 <!-- PAGE 027 -->
-IN THE FIRST EDITION OF
-AN ALBUM OF
-LOVER.
-TRIBALLA.
-TROMBONIA.
-MADRIGAL
 
+In Amicissimi & Generosi
+AVTHORIS
+Librum,
+
+EPIGRAMMA.
+
+Transsyluanorum, Daciais
+de Gentibus, Ortum
+Eruis. Occasum sed simul
+ipse refers.
+Occasum, fallor! Nam ne-
+quicquam occidit, Ortum
+Quæ tenet, his Scriptis, Pa-
+tria perpetuum.
+
+R. FORT.
+
+MADRIGAL
 
 ---
 
