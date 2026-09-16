@@ -209,9 +209,6 @@ Iornandes, cartea 1, *Despre succesiunea regatelor și a timpurilor*, confirmă 
 
 Fără îndoială, în vremurile ei fericite, Daciei îi erau alipite Moesia, Pannonia Superior, o parte din Sarmatia, Moldova, Valahia și hotarele Traciei. Astăzi, noi, nenorociții, aproape că suntem înghesuiți într-un singur orășel.
 
-A 4
-
-8 Originile transilvănenilor
 
 ## CAPITOLUL III.
 
@@ -293,12 +290,6 @@ II. Fiindcă, încă de când germanii au devenit cunoscuți pentru prima dată,
 
 III. Fiindcă, după unii autori, toți germanii și, prin urmare, chiar sașii se trag din daci sau transilvăneni. Scriitorul german Petrus Bertius, în *Commentarii rerum Germanicarum*, cartea I, capitolul 2, spune: „Germanii, cel mai nobil dintre popoarele Europei, își au originea în daci.” De asemenea, cea mai de seamă nobilime a Spaniei se laudă că își trage originea din sângele goților.
 
-
-
-
-
-
-```markdown
 Într-adevăr, nici fruntașilor Spaniei nu le este rușine să-și raporteze strămoșii la goți (după cum relatează Iacobus Zieglerus împotriva lui Stunica) și să-și revendice de acolo strălucirea neamului. De aceea, în Conciliul de la Toledo al V-lea, art. 3, se hotărăște ca nimeni să nu fie ales la culmea demnității regale dacă noblețea neamului gotic nu-l îndreptățește la această onoare. Dar să revenim la subiect: Samoscius, în manuscrisul *Origines Hungarorum*, spune că germanii au fost o ramură a goților; iar faptul că goții au vorbit germanicește este mai sigur decât să mai trebuiască demonstrat, lucru pe care nici învățații germanilor nu-l tăgăduiesc. Iustus Lipsius dovedește, în cartea a II-a, cap. 6, *Lect. antiq.*, că germanii, înainte barbari, au fost abia sub Augustus așezați pentru prima dată în orașe, mai ales prin strădania lui Tiberius. Dar cu cât sunt dacii noștri mai vechi decât ei în ceea ce privește intrarea lor în istorie! Așadar, este atât de departe de adevăr ca transilvănenii, fii ai goților, să se tragă din sașii germani, încât contrariul, după cum s-a arătat, este mai apropiat de adevăr. Pentru că:
 
 IV. Stricarea limbii italiene introdusă de goți și longobarzi este idiomul dacilor noștri.
@@ -1680,3 +1671,7 @@ cunoscut, punea la cale aceste planuri; și susținea cu abilitate că acesta fu
 
 INDEX
 ...
+
+
+
+(traducere românească, ChatGPT, 16 sept 2026)
