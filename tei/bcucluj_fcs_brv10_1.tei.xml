@@ -806,7 +806,7 @@
             <lb/>лꙋй ши грѫнѫ • покѫнцивѫ • ѫпропне-
             <lb/>се ѫмоу ѫмпѫрцїа чѣрюлꙋй • ачѣстѣ сѫн-
             <lb/>ть грѫйтеле Ісаїен пррꙫкоу чегрѫнѫ •
-            <lb/>глась стрйгѫ ѣмпоустіе • гѫтйцн калѣ
+            <lb/>глась стрйгѫ лпоустіе • гѫтйцн калѣ
             <lb/>доумнезеѣскѫ • дерептѣ фачецн кѫрѫ-
             <lb/>рйле лꙋй • ачѣла Іѡань • авѣ вешминтеле
             <lb/>лꙋй депѫрь декѫмнлѫ • ши брѫу декоу-
@@ -827,7 +827,7 @@
             <lb/>lui și grânâ • pokânțivâ • îpropne-
             <lb/>se îmu împârția ceriului • aceste sân-
             <lb/>t' grâitele isaien prroku cegrânâ •
-            <lb/>glas' strigâ empustie • gâtițn kale
+            <lb/>glas' strigâ lpustie • gâtițn kale
             <lb/>dumnezeeskâ • derepte facețn kârâ-
             <lb/>rile lui • acela ioan' • ave veșmintele
             <lb/>lui depâr' dekâmnlâ • și brâu deku-
@@ -1026,13 +1026,23 @@
         <div type="transcription" xml:id="lec14_orig">
           <p>
             <lb/>врѣмѣ ачѣл • ѫтꙋнче Іс҃ доусь фоу
-            <lb/>кꙋдхꙋл ѣмпоустіе • ѫсeиспнти дедіа-
+            <lb/>кꙋдхꙋл лпоустіе • <note resp="#transcriber">printed
+            glyph shaped as Cyrillic н, but Cyrillic Н and Greek Η
+            (eta, iotacist value /i/) are literally the same sort — early
+            Cyrillic/Greek mixed typecases regularly reused one for the
+            other. "асеиспнти" has no sense; "асеиспити" (a se ispiti,
+            "to be tempted") is unambiguous and matches the following
+            "дедіаволоу" ("de diavolu"). Read with the Greek/iotacist
+            value here.</note>ѫсeиспити дедіа-
             <lb/>волоу • ши пости зиле <note resp="#transcriber">
             "м ши ѫнoпфла мѫнзй мѫнзи" — expected sense "patruzeci de
             zile și patruzeci de nopți" (forty days and forty nights); the
             repeated "мѫнзй мѫнзи" looks like it may be a misreading of a
             single instance, not confidently two.</note>м ши ѫнoпфла мѫнзй
-            <lb/>мѫнзи • ши ѫпропнесе кѫтрѫ ѥль испн-
+            <lb/>мѫнзи • ши ѫпропнесе кѫтрѫ ѥль <note resp="#transcriber">
+            same Cyrillic-Н/Greek-eta ambiguity as above; "испититорю"
+            (ispititoriu, "the Tempter") is the only sensible reading of
+            "испн-титорю".</note>испи-
             <lb/>титорю ши зйсе сѫ ѥщй фіюл домноулꙋй
             <lb/>зй делпіетриле ачѣсте пѫнне сѫ фіе •
             <lb/>ѥль рѫспꙋнсе зйсе скрисѫ ѫсте • нукоу пѫ-
@@ -1048,9 +1058,9 @@
         <div type="transliteration" xml:lang="ro-Latn" corresp="#lec14_orig">
           <p>
             <lb/>vreme acel • îtunce Is dus' fu
-            <lb/>kudhul empustie • îseispnti dedia-
+            <lb/>kudhul lpustie • îseispiti dedia-
             <lb/>volu • și posti zile m și înopfla mânzi
-            <lb/>mânzi • și îpropnese kâtrâ iel' ispn-
+            <lb/>mânzi • și îpropnese kâtrâ iel' ispi-
             <lb/>titoriu și zise sâ iești fiiul domnului
             <lb/>zi delpietrile aceste pânne sâ fie •
             <lb/>iel' râspunse zise skrisâ îste • nuku pâ-
@@ -1088,7 +1098,9 @@
             <lb/>феряскѫ • ши прѣ мяни лѣатевꙫ •
             <lb/>сѫноу коумва потннкнецн депіатрѫ пи-
             <lb/>чорꙋу тѫоу • грѫй лоцн Іс҃ • ѣарѫ скрй-
-            <lb/>сѫ ѫсте • ноуверн испнти доумнезеꙋ
+            <lb/>сѫ ѫсте • ноуверн <note resp="#transcriber">same
+            Cyrillic-Н/Greek-eta ambiguity — "испити" (ispiti, "to
+            tempt") is the only sensible reading.</note>испити доумнезеꙋ
             <lb/>домноу тѫоу • Іарѫ лоуѡ ѥль дракꙋль
             <lb/>ѫтроу мѫгоурѫ ѣналтѫ фоарте • ши
             <lb/>ѫрѫтѫ лꙋй тоатѫ ѫмпѫрѫціа лꙋмiен
@@ -1110,7 +1122,7 @@
             <lb/>fereaskâ • și pre meani leatevo •
             <lb/>sânu kumva potnnknețn depiatrâ pi-
             <lb/>cioruu tâu • grâi loțn Is • earâ skri-
-            <lb/>sâ îste • nuvern ispnti dumnezeu
+            <lb/>sâ îste • nuvern ispiti dumnezeu
             <lb/>domnu tâu • iarâ luo iel' drakul'
             <lb/>îtru mâgurâ enaltâ foarte • și
             <lb/>îrâtâ lui toatâ împârâția lumien
