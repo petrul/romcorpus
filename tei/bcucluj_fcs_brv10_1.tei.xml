@@ -140,97 +140,103 @@
       this scan). Added a third parallel Latin-transliteration layer to
       every lection per conventions agreed with the file's owner. Moved
       into the romcorpus repository as
-      <idno>tei/bcucluj_fcs_brv10_1.tei.xml</idno> with page images under
-      <idno>tei/bcucluj_fcs_brv10_1.d/</idno>.</change>
+      <idno>tei/bcucluj_fcs_brv10_1.tei.xml</idno>.</change>
+      <change when="2026-09-20">Replaced the per-page PNG facsimile images
+      (85 files, ~633MB, extracted at 300 DPI from the source PDF) with
+      logical <gi>graphic</gi> references directly into the source PDF,
+      e.g. <idno>BCUCLUJ_FCS_BRV10_1.pdf#page=1</idno>. The source PDF
+      (BCU Cluj digitization, 40MB) is committed alongside this file as
+      <idno>tei/BCUCLUJ_FCS_BRV10_1.pdf</idno> so the references resolve
+      without needing the much heavier per-page image set.</change>
     </revisionDesc>
   </teiHeader>
 
   <facsimile>
-    <surface xml:id="p1"><graphic url="bcucluj_fcs_brv10_1.d/page-001.png"/></surface>
-    <surface xml:id="p2"><graphic url="bcucluj_fcs_brv10_1.d/page-002.png"/></surface>
-    <surface xml:id="p3"><graphic url="bcucluj_fcs_brv10_1.d/page-003.png"/></surface>
-    <surface xml:id="p4"><graphic url="bcucluj_fcs_brv10_1.d/page-004.png"/></surface>
-    <surface xml:id="p5"><graphic url="bcucluj_fcs_brv10_1.d/page-005.png"/></surface>
-    <surface xml:id="p6"><graphic url="bcucluj_fcs_brv10_1.d/page-006.png"/></surface>
-    <surface xml:id="p7"><graphic url="bcucluj_fcs_brv10_1.d/page-007.png"/></surface>
-    <surface xml:id="p8"><graphic url="bcucluj_fcs_brv10_1.d/page-008.png"/></surface>
-    <surface xml:id="p9"><graphic url="bcucluj_fcs_brv10_1.d/page-009.png"/></surface>
-    <surface xml:id="p10"><graphic url="bcucluj_fcs_brv10_1.d/page-010.png"/></surface>
-    <surface xml:id="p11"><graphic url="bcucluj_fcs_brv10_1.d/page-011.png"/></surface>
-    <surface xml:id="p12"><graphic url="bcucluj_fcs_brv10_1.d/page-012.png"/></surface>
-    <surface xml:id="p13"><graphic url="bcucluj_fcs_brv10_1.d/page-013.png"/></surface>
-    <surface xml:id="p14"><graphic url="bcucluj_fcs_brv10_1.d/page-014.png"/></surface>
-    <surface xml:id="p15"><graphic url="bcucluj_fcs_brv10_1.d/page-015.png"/></surface>
-    <surface xml:id="p16"><graphic url="bcucluj_fcs_brv10_1.d/page-016.png"/></surface>
-    <surface xml:id="p17"><graphic url="bcucluj_fcs_brv10_1.d/page-017.png"/></surface>
-    <surface xml:id="p18"><graphic url="bcucluj_fcs_brv10_1.d/page-018.png"/></surface>
-    <surface xml:id="p19"><graphic url="bcucluj_fcs_brv10_1.d/page-019.png"/></surface>
-    <surface xml:id="p20"><graphic url="bcucluj_fcs_brv10_1.d/page-020.png"/></surface>
-    <surface xml:id="p21"><graphic url="bcucluj_fcs_brv10_1.d/page-021.png"/></surface>
-    <surface xml:id="p22"><graphic url="bcucluj_fcs_brv10_1.d/page-022.png"/></surface>
-    <surface xml:id="p23"><graphic url="bcucluj_fcs_brv10_1.d/page-023.png"/></surface>
-    <surface xml:id="p24"><graphic url="bcucluj_fcs_brv10_1.d/page-024.png"/></surface>
-    <surface xml:id="p25"><graphic url="bcucluj_fcs_brv10_1.d/page-025.png"/></surface>
-    <surface xml:id="p26"><graphic url="bcucluj_fcs_brv10_1.d/page-026.png"/></surface>
-    <surface xml:id="p27"><graphic url="bcucluj_fcs_brv10_1.d/page-027.png"/></surface>
-    <surface xml:id="p28"><graphic url="bcucluj_fcs_brv10_1.d/page-028.png"/></surface>
-    <surface xml:id="p29"><graphic url="bcucluj_fcs_brv10_1.d/page-029.png"/></surface>
-    <surface xml:id="p30"><graphic url="bcucluj_fcs_brv10_1.d/page-030.png"/></surface>
-    <surface xml:id="p31"><graphic url="bcucluj_fcs_brv10_1.d/page-031.png"/></surface>
-    <surface xml:id="p32"><graphic url="bcucluj_fcs_brv10_1.d/page-032.png"/></surface>
-    <surface xml:id="p33"><graphic url="bcucluj_fcs_brv10_1.d/page-033.png"/></surface>
-    <surface xml:id="p34"><graphic url="bcucluj_fcs_brv10_1.d/page-034.png"/></surface>
-    <surface xml:id="p35"><graphic url="bcucluj_fcs_brv10_1.d/page-035.png"/></surface>
-    <surface xml:id="p36"><graphic url="bcucluj_fcs_brv10_1.d/page-036.png"/></surface>
-    <surface xml:id="p37"><graphic url="bcucluj_fcs_brv10_1.d/page-037.png"/></surface>
-    <surface xml:id="p38"><graphic url="bcucluj_fcs_brv10_1.d/page-038.png"/></surface>
-    <surface xml:id="p39"><graphic url="bcucluj_fcs_brv10_1.d/page-039.png"/></surface>
-    <surface xml:id="p40"><graphic url="bcucluj_fcs_brv10_1.d/page-040.png"/></surface>
-    <surface xml:id="p41"><graphic url="bcucluj_fcs_brv10_1.d/page-041.png"/></surface>
-    <surface xml:id="p42"><graphic url="bcucluj_fcs_brv10_1.d/page-042.png"/></surface>
-    <surface xml:id="p43"><graphic url="bcucluj_fcs_brv10_1.d/page-043.png"/></surface>
-    <surface xml:id="p44"><graphic url="bcucluj_fcs_brv10_1.d/page-044.png"/></surface>
-    <surface xml:id="p45"><graphic url="bcucluj_fcs_brv10_1.d/page-045.png"/></surface>
-    <surface xml:id="p46"><graphic url="bcucluj_fcs_brv10_1.d/page-046.png"/></surface>
-    <surface xml:id="p47"><graphic url="bcucluj_fcs_brv10_1.d/page-047.png"/></surface>
-    <surface xml:id="p48"><graphic url="bcucluj_fcs_brv10_1.d/page-048.png"/></surface>
-    <surface xml:id="p49"><graphic url="bcucluj_fcs_brv10_1.d/page-049.png"/></surface>
-    <surface xml:id="p50"><graphic url="bcucluj_fcs_brv10_1.d/page-050.png"/></surface>
-    <surface xml:id="p51"><graphic url="bcucluj_fcs_brv10_1.d/page-051.png"/></surface>
-    <surface xml:id="p52"><graphic url="bcucluj_fcs_brv10_1.d/page-052.png"/></surface>
-    <surface xml:id="p53"><graphic url="bcucluj_fcs_brv10_1.d/page-053.png"/></surface>
-    <surface xml:id="p54"><graphic url="bcucluj_fcs_brv10_1.d/page-054.png"/></surface>
-    <surface xml:id="p55"><graphic url="bcucluj_fcs_brv10_1.d/page-055.png"/></surface>
-    <surface xml:id="p56"><graphic url="bcucluj_fcs_brv10_1.d/page-056.png"/></surface>
-    <surface xml:id="p57"><graphic url="bcucluj_fcs_brv10_1.d/page-057.png"/></surface>
-    <surface xml:id="p58"><graphic url="bcucluj_fcs_brv10_1.d/page-058.png"/></surface>
-    <surface xml:id="p59"><graphic url="bcucluj_fcs_brv10_1.d/page-059.png"/></surface>
-    <surface xml:id="p60"><graphic url="bcucluj_fcs_brv10_1.d/page-060.png"/></surface>
-    <surface xml:id="p61"><graphic url="bcucluj_fcs_brv10_1.d/page-061.png"/></surface>
-    <surface xml:id="p62"><graphic url="bcucluj_fcs_brv10_1.d/page-062.png"/></surface>
-    <surface xml:id="p63"><graphic url="bcucluj_fcs_brv10_1.d/page-063.png"/></surface>
-    <surface xml:id="p64"><graphic url="bcucluj_fcs_brv10_1.d/page-064.png"/></surface>
-    <surface xml:id="p65"><graphic url="bcucluj_fcs_brv10_1.d/page-065.png"/></surface>
-    <surface xml:id="p66"><graphic url="bcucluj_fcs_brv10_1.d/page-066.png"/></surface>
-    <surface xml:id="p67"><graphic url="bcucluj_fcs_brv10_1.d/page-067.png"/></surface>
-    <surface xml:id="p68"><graphic url="bcucluj_fcs_brv10_1.d/page-068.png"/></surface>
-    <surface xml:id="p69"><graphic url="bcucluj_fcs_brv10_1.d/page-069.png"/></surface>
-    <surface xml:id="p70"><graphic url="bcucluj_fcs_brv10_1.d/page-070.png"/></surface>
-    <surface xml:id="p71"><graphic url="bcucluj_fcs_brv10_1.d/page-071.png"/></surface>
-    <surface xml:id="p72"><graphic url="bcucluj_fcs_brv10_1.d/page-072.png"/></surface>
-    <surface xml:id="p73"><graphic url="bcucluj_fcs_brv10_1.d/page-073.png"/></surface>
-    <surface xml:id="p74"><graphic url="bcucluj_fcs_brv10_1.d/page-074.png"/></surface>
-    <surface xml:id="p75"><graphic url="bcucluj_fcs_brv10_1.d/page-075.png"/></surface>
-    <surface xml:id="p76"><graphic url="bcucluj_fcs_brv10_1.d/page-076.png"/></surface>
-    <surface xml:id="p77"><graphic url="bcucluj_fcs_brv10_1.d/page-077.png"/></surface>
-    <surface xml:id="p78"><graphic url="bcucluj_fcs_brv10_1.d/page-078.png"/></surface>
-    <surface xml:id="p79"><graphic url="bcucluj_fcs_brv10_1.d/page-079.png"/></surface>
-    <surface xml:id="p80"><graphic url="bcucluj_fcs_brv10_1.d/page-080.png"/></surface>
-    <surface xml:id="p81"><graphic url="bcucluj_fcs_brv10_1.d/page-081.png"/></surface>
-    <surface xml:id="p82"><graphic url="bcucluj_fcs_brv10_1.d/page-082.png"/></surface>
-    <surface xml:id="p83"><graphic url="bcucluj_fcs_brv10_1.d/page-083.png"/></surface>
-    <surface xml:id="p84"><graphic url="bcucluj_fcs_brv10_1.d/page-084.png"/></surface>
-    <surface xml:id="p85"><graphic url="bcucluj_fcs_brv10_1.d/page-085.png"/></surface>
+    <surface xml:id="p1"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=1"/></surface>
+    <surface xml:id="p2"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=2"/></surface>
+    <surface xml:id="p3"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=3"/></surface>
+    <surface xml:id="p4"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=4"/></surface>
+    <surface xml:id="p5"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=5"/></surface>
+    <surface xml:id="p6"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=6"/></surface>
+    <surface xml:id="p7"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=7"/></surface>
+    <surface xml:id="p8"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=8"/></surface>
+    <surface xml:id="p9"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=9"/></surface>
+    <surface xml:id="p10"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=10"/></surface>
+    <surface xml:id="p11"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=11"/></surface>
+    <surface xml:id="p12"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=12"/></surface>
+    <surface xml:id="p13"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=13"/></surface>
+    <surface xml:id="p14"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=14"/></surface>
+    <surface xml:id="p15"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=15"/></surface>
+    <surface xml:id="p16"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=16"/></surface>
+    <surface xml:id="p17"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=17"/></surface>
+    <surface xml:id="p18"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=18"/></surface>
+    <surface xml:id="p19"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=19"/></surface>
+    <surface xml:id="p20"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=20"/></surface>
+    <surface xml:id="p21"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=21"/></surface>
+    <surface xml:id="p22"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=22"/></surface>
+    <surface xml:id="p23"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=23"/></surface>
+    <surface xml:id="p24"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=24"/></surface>
+    <surface xml:id="p25"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=25"/></surface>
+    <surface xml:id="p26"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=26"/></surface>
+    <surface xml:id="p27"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=27"/></surface>
+    <surface xml:id="p28"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=28"/></surface>
+    <surface xml:id="p29"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=29"/></surface>
+    <surface xml:id="p30"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=30"/></surface>
+    <surface xml:id="p31"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=31"/></surface>
+    <surface xml:id="p32"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=32"/></surface>
+    <surface xml:id="p33"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=33"/></surface>
+    <surface xml:id="p34"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=34"/></surface>
+    <surface xml:id="p35"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=35"/></surface>
+    <surface xml:id="p36"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=36"/></surface>
+    <surface xml:id="p37"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=37"/></surface>
+    <surface xml:id="p38"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=38"/></surface>
+    <surface xml:id="p39"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=39"/></surface>
+    <surface xml:id="p40"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=40"/></surface>
+    <surface xml:id="p41"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=41"/></surface>
+    <surface xml:id="p42"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=42"/></surface>
+    <surface xml:id="p43"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=43"/></surface>
+    <surface xml:id="p44"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=44"/></surface>
+    <surface xml:id="p45"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=45"/></surface>
+    <surface xml:id="p46"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=46"/></surface>
+    <surface xml:id="p47"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=47"/></surface>
+    <surface xml:id="p48"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=48"/></surface>
+    <surface xml:id="p49"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=49"/></surface>
+    <surface xml:id="p50"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=50"/></surface>
+    <surface xml:id="p51"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=51"/></surface>
+    <surface xml:id="p52"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=52"/></surface>
+    <surface xml:id="p53"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=53"/></surface>
+    <surface xml:id="p54"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=54"/></surface>
+    <surface xml:id="p55"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=55"/></surface>
+    <surface xml:id="p56"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=56"/></surface>
+    <surface xml:id="p57"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=57"/></surface>
+    <surface xml:id="p58"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=58"/></surface>
+    <surface xml:id="p59"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=59"/></surface>
+    <surface xml:id="p60"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=60"/></surface>
+    <surface xml:id="p61"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=61"/></surface>
+    <surface xml:id="p62"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=62"/></surface>
+    <surface xml:id="p63"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=63"/></surface>
+    <surface xml:id="p64"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=64"/></surface>
+    <surface xml:id="p65"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=65"/></surface>
+    <surface xml:id="p66"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=66"/></surface>
+    <surface xml:id="p67"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=67"/></surface>
+    <surface xml:id="p68"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=68"/></surface>
+    <surface xml:id="p69"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=69"/></surface>
+    <surface xml:id="p70"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=70"/></surface>
+    <surface xml:id="p71"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=71"/></surface>
+    <surface xml:id="p72"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=72"/></surface>
+    <surface xml:id="p73"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=73"/></surface>
+    <surface xml:id="p74"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=74"/></surface>
+    <surface xml:id="p75"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=75"/></surface>
+    <surface xml:id="p76"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=76"/></surface>
+    <surface xml:id="p77"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=77"/></surface>
+    <surface xml:id="p78"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=78"/></surface>
+    <surface xml:id="p79"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=79"/></surface>
+    <surface xml:id="p80"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=80"/></surface>
+    <surface xml:id="p81"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=81"/></surface>
+    <surface xml:id="p82"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=82"/></surface>
+    <surface xml:id="p83"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=83"/></surface>
+    <surface xml:id="p84"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=84"/></surface>
+    <surface xml:id="p85"><graphic url="BCUCLUJ_FCS_BRV10_1.pdf#page=85"/></surface>
     <!-- surfaces for pages 24-85 to be appended as transcription proceeds -->
   </facsimile>
 
